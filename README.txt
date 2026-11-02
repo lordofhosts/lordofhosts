@@ -69,11 +69,60 @@ with ink from insideout art.
 
                               V. 
 
+           Poems 
+           A TABLE 
 
+Irish  English  Ballad  Spanish  Spell 
+A,     A,       A,      Noun,    Make, 
+A.     B.       B.      Adj.     this. 
+B,     A,       C,      Verb, 
+B.     B.       B.      Adv. 
+A.     C, 
+       C. 
 
+           Small 
+           A SPELL 
 
+keep me small, 
+so I'm Her doll. 
 
+           Read 
+           A SPELL 
 
+my eyes read, 
+like the breeze. 
 
+           Spry 
+           A SPELL 
 
+I stay alive, 
+and spry! 
 
+                              VI. 
+
+           Halloween 
+           A SKETCH 
+
+it's cold outside, 
+there's a dead bird outside. 
+
+           Poems 
+           A TABLE 
+
+Jim          Eminem  Joyce 
+AdjAdjNoun,  AAAA,    ColorNoun in ColorNoun, 
+AdvAdvVerb.  BBBB,    ColorVerb in ColorVerb. 
+AdjAdjNoun,  CCCC,    ColorNoun in ColorNoun, 
+AdvAdvVerb.  DDDD,    ColorVerb in ColorVerb. 
+
+                              VII. 
+
+           Sleep 
+           A SPELL 
+
+sleep with this book, 
+for the text to come true. 
+take another look, 
+to see what to do. 
+
+                              VIII. 
