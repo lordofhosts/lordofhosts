@@ -225,3 +225,64 @@ winter's cocaine body armor falls into me fast.
 
 
                               XVI. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+                              Oct31 
+
+           Mystery Brew 
+           A MIXTAPE 
+
+I. Sovereign by beatNick 
+II. Warm Up by Logic 
+III. Mr. Rager by KiD CuDi 
+IV. Caterpillar by Eminem & 5'9" 
+V. Dr. Carter by Lil' Wayne 
+VI. Devil's Son by Big L 
+VII. Euphoria by Rakim 
+VIII. DNA. by Kendrick Lamar 
+IX. Picasso by Hopsin 
+X. Gates by Aseop Rock 
+XI. Animal Sacrifice by Rass Kass 
+
+By: 
+Nick Morris July 16th 1993 
+
+                              . 
+
+                              Oct31 
+
+Mental Graffiti 
+
+                              . 
+
+                              Oct31 
+
+Halloween 
+Start of Production 
+October 31st 2026 
+Norwalk 
+CT 
+203 
+West 
+South 
+Washington 
+New Haven 
+Route One 
+
+Nick Morris 
+
+                              . 
