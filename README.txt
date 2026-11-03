@@ -125,9 +125,9 @@ there's a dead bird outside.
 
 Jim          Eminem  Joyce 
 AdjAdjNoun,  AAAA,    ColorNoun in ColorNoun, 
-AdvAdvVerb.  BBBB,    ColorVerb in ColorVerb. 
+AdvAdvVerb.  BBBB.    ColorVerb in ColorVerb. 
 AdjAdjNoun,  CCCC,    ColorNoun in ColorNoun, 
-AdvAdvVerb.  DDDD,    ColorVerb in ColorVerb. 
+AdvAdvVerb.  DDDD.    ColorVerb in ColorVerb. 
 
                               VII. 
 
@@ -193,4 +193,35 @@ Her
 
                               XIV. 
 
+                              Nov1 
 
+           Obalisk 
+           A SONG 
+
+my root hugs a tree, 
+curled up in a cocoon. 
+a couple cars twentyfive by, 
+one way below my perched mood. 
+four before dawn my numb toes touch street, 
+Pisces in my feet fish for looseys. 
+bricks in my hand pick up bud, 
+the frozen snowglobe finds bone easily. 
+smoke from the little blue rooster, 
+in Washington Park that walls off South. 
+the cops doublepoach the hallway, 
+drinking Monsters as a Camel in my mouth. 
+I'm a walking cold stone obalisk, 
+my tattoos minting a bloody ruby past. 
+my chest's pulse thermometer hibernates, 
+winter's cocaine body armor falls into me fast. 
+
+                              XV. 
+
+
+                              Nov1 
+
+
+
+
+
+                              XVI. 
