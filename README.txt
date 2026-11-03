@@ -11,17 +11,25 @@ license.
            A BOOK FOR ARTISTS 
 
 
+                              Oct31 
+
 Small 
 
                               I. 
+
+                              Oct31 
 
 Norwalk 
 
                               II. 
 
+                              Oct31 
+
 euphredes 
 
                               III. 
+
+                              Oct31 
 
            Small 
            A SKETCH 
@@ -47,6 +55,8 @@ settle in.
 
                               IV. 
 
+                              Oct31 
+
            Saturday 
            A SONG 
 
@@ -68,6 +78,8 @@ my hand swindles my heart,
 with ink from insideout art. 
 
                               V. 
+
+                              Oct31 
 
            Poems 
            A TABLE 
@@ -100,6 +112,8 @@ and spry!
 
                               VI. 
 
+                              Oct31 
+
            Halloween 
            A SKETCH 
 
@@ -117,6 +131,8 @@ AdvAdvVerb.  DDDD,    ColorVerb in ColorVerb.
 
                               VII. 
 
+                              Oct31 
+
            Sleep 
            A SPELL 
 
@@ -125,4 +141,56 @@ for the text to come true.
 take another look, 
 to see what to do. 
 
+           Poems 
+           A TABLE 
+
+Hemmingway  Proust   Kafka 
+Noun,       Person,  Person, 
+Adj.        Verb.    Verb. 
+Verb,       Thing,   Problem, 
+Adv.        Verb.    Adj. 
+Place,      Place,   Place, 
+Adj.        Verb.    Verb. 
+Mystery,             Solution, 
+Adv.                 Verb. 
+
+
                               VIII. 
+
+                              Oct31 
+
+Ludwig VII 
+
+                              IX. 
+
+                              Oct31 
+
+gypsy 
+
+                              X. 
+
+                              Oct31 
+
+Nick 
+
+                              XI. 
+
+                              Oct31 
+
+Walnut 
+
+                              XII. 
+
+                              Oct31 
+
+Poet 
+
+                              XIII. 
+
+                              Oct31 
+
+Her 
+
+                              XIV. 
+
+
