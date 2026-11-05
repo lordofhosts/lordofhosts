@@ -8,7 +8,7 @@ license.
 
 
            Mixtape 
-           A BOOK THE MEMORY 
+           A BOOK FOR THE MEMORY 
 
 
            Nick Morris 
@@ -2120,174 +2120,174 @@ winter's cocaine body armor falls into me fast.
 
                               Oct31 
 
-           Knifefingers 
+           NYC 
 
 
 
                               
-                              . 
+                              CCCXXI. 
 
                               Oct31 
 
-           Knifefingers 
+           Greenrose 
 
 
 
                               
-                              . 
+                              CCCXXII. 
 
                               Oct31 
 
-           Knifefingers 
+           Rubyheart 
 
 
 
                               
-                              . 
+                              CCCXXIII. 
 
                               Oct31 
 
-           Knifefingers 
+           Bulldoglegs 
 
 
 
                               
-                              . 
+                              CCCXXIV. 
 
                               Oct31 
 
-           Knifefingers 
+           Poetshands 
 
 
 
                               
-                              . 
+                              CCCXXV. 
 
                               Oct31 
 
-           Knifefingers 
+           Kingsface 
 
 
 
                               
-                              . 
+                              CCCXXVI. 
 
                               Oct31 
 
-           Knifefingers 
+           Fighterschest 
 
 
 
                               
-                              . 
+                              CCCXXVII. 
 
                               Oct31 
 
-           Knifefingers 
+           Dadtummy 
 
 
 
                               
-                              . 
+                              CCCXXVIII. 
 
 
                               Oct31 
 
-           Knifefingers 
+           Artistsarms 
 
 
 
                               
-                              . 
+                              CCCXXIX. 
 
                               Oct31 
 
-           Knifefingers 
+           Treeneck 
 
 
 
                               
-                              . 
+                              CCCXXX. 
 
 
                               Oct31 
 
-           Knifefingers 
+           Slickhair 
 
 
 
                               
-                              . 
+                              CCCXXXI. 
 
                               Oct31 
 
-           Knifefingers 
+           Emeraldeyes 
 
 
 
                               
-                              . 
+                              CCCXXXII. 
 
 
                               Oct31 
 
-           Knifefingers 
+           Stonenails 
 
 
 
                               
-                              . 
+                              CCCXXXIII. 
 
                               Oct31 
 
-           Knifefingers 
+           Greatback 
 
 
 
-                              . 
-
-
-                              Oct31 
-
-           Knifefingers 
-
-
-
-                              . 
-
-                              Oct31 
-
-           Knifefingers 
-
-
-
-                              . 
+                              CCCXXXIV. 
 
 
                               Oct31 
 
-           Knifefingers 
+           Chizeledbody 
 
 
 
-                              . 
-
-                              Oct31 
-
-           Knifefingers 
-
-
-
-                              . 
-
+                              CCCXXXV. 
 
                               Oct31 
 
-           Knifefingers 
+           Spirithost 
 
 
 
-                              . 
+                              CCCXXXVI. 
+
+
+                              Oct31 
+
+           Bookbearer 
+
+
+
+                              CCCXXXVII. 
+
+                              Oct31 
+
+           Glowcarrier 
+
+
+
+                              CCCXXXVIII. 
+
+
+                              Oct31 
+
+           Witchman 
+
+
+
+                              CCCXXXIX. 
 
                               Oct31 
 
