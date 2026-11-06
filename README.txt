@@ -61,6 +61,11 @@ and tea.
 I smoke up the whole table to 
 settle in. 
 
+                              Oct31A 
+
+           Park 
+           AN EXPERIENCE 
+
 I like Washington Park because it 
 is at the edge of hood, downtown, 
 and village. This is an important 
@@ -70,12 +75,18 @@ showing I can hold my own space
 without bothering others, I will 
 earn my spot in Norwalk. 
 
-Tobacco is on my person often. I 
-find the tobacco from the 
-groundfloor which has great odds 
-of success in Norwalk but nothing 
-will compare to what I've found in 
-Philly. 
+                              IV. 
+
+                              Oct31A 
+
+           Park 
+           AN EXPERIENCE 
+
+Tobacco is on me often. I find the 
+tobacco from the groundfloor which 
+has great odds of success in 
+Norwalk but nothing will compare 
+to what I've found in Philly. 
 
 Weed is not as easy to come by 
 outside. I get my weed from a 
@@ -85,6 +96,13 @@ during dark skies next to dawn
 and dusk. He is a regular stop 
 that puts a smile on the inside 
 of my face. 
+
+                              IV. 
+
+                              Oct31A 
+
+           Park 
+           AN EXPERIENCE 
 
 I have the Bible on me to prove I 
 can be responsible by taking care 
@@ -104,6 +122,13 @@ joy. I don't get thrill from theft
 but rather the experience of being 
 out and about with a shopping list. 
 
+                              IV. 
+
+                              Oct31A 
+
+           Park 
+           AN EXPERIENCE 
+
 Drinking is an important part of 
 outside. It is a hardlife to be a 
 walker. Drinking is one of those 
@@ -113,6 +138,13 @@ fermented and potent with flavor.
 It stings like an India Pale Ale. 
 It's a great way to detox from 
 drinking. 
+
+                              IV. 
+
+                              Oct31A 
+
+           Park 
+           AN EXPERIENCE 
 
 I enjoy Norwalk. It has one long 
 main roadway from South to the 
@@ -127,6 +159,13 @@ week's walk away. There's many
 great resources for survival and 
 writing in New Haven that I can 
 leverage and enjoy. 
+
+                              IV. 
+
+                              Oct31A 
+
+           Park 
+           AN EXPERIENCE 
 
 There's just enough resources to 
 have food and smoke every day for 
@@ -144,9 +183,16 @@ occupy me and give my life
 meaning without dying with my 
 youth like other skills. 
 
+                              IV. 
+
+                              Oct31A 
+
+           Park 
+           AN EXPERIENCE 
+
 I think Fairfield County is a 
-great stop for me. I have had 
-highest success in Connecticut 
+great settlement for me. I have 
+had highest success in Connecticut 
 when it comes to my footpaths 
 throughout Massachusetts, Rhode 
 Island, Connecticut, New York, 
@@ -157,11 +203,6 @@ and give my personal space the
 breathing room it needs to feel 
 safe and secure and ready to 
 work my days. 
-
-
-
-
-
 
                               IV. 
 
@@ -434,12 +475,49 @@ winter's cocaine body armor falls into me fast.
            Study 
            A LAW 
 
+the Lord of Asaph fills my 
+ heart with trust, 
+Asaph's words bring a vine out 
+ of the jungle of disillusionment. 
+wise words in less space like a 
+ sword drives out doubt, 
+the analytics that shortsighted 
+ seers revere looks ahead but only a 
+ couple events. 
+the Lord of Moses must clear the 
+ workspace for practice to take 
+ root, 
+the Periodic Table of Elements 
+ like Chapters of The Bible unread. 
+human reactions branch out of the 
+ instincts into the sea of experience, 
+colors of blue in me fear the colors that 
+ could fill between us for an airy red. 
+
                               XXI. 
 
                               Nov6F 
 
            Study 
            A LAW 
+
+the Lord of Paul formerly Saul shows 
+ a sojourner must stake his life 
+ upon followership, 
+words which walk see and spell the 
+ workman's ship. 
+heavy legs like statues of fallen 
+ doers of dangerous deeds, 
+heavy hands crush and mint ink into 
+ waterpaper like a coffin holds 
+ the dead. 
+the Spirit of the Lord walks by as 
+ solitary and confined for those who 
+ care, 
+the Lord of Hosts sinks feelings 
+ weighing rocks into the legs and 
+ torso of a man to prove reasonably 
+ that another decisionmaker is there. 
 
                               XXI. 
 
