@@ -62,45 +62,57 @@ I smoke up the whole table to
 settle in. 
 
 I like Washington Park because it 
-is at the edge of danger, downtown, 
+is at the edge of hood, downtown, 
 and village. This is an important 
-area to show who what when where 
-how and why things go down. By 
+area to show who, what, when, where, 
+how, and why things go down. By 
 showing I can hold my own space 
 without bothering others, I will 
 earn my spot in Norwalk. 
 
-I find the tobacco from the 
+Tobacco is on my person often. I 
+find the tobacco from the 
 groundfloor which has great odds 
 of success in Norwalk but nothing 
-will compare what I've found in 
+will compare to what I've found in 
 Philly. 
 
-I get my weed from a weedman. 
-There's one particular house that 
-tosses big roaches during dark 
-next to dawn and dusk. He is a 
-regular stop that put a smile on 
-the inside of my face. 
+Weed is not as easy to come by 
+outside. I get my weed from a 
+weedman. There's one particular 
+house that tosses big roaches 
+during dark skies next to dawn 
+and dusk. He is a regular stop 
+that puts a smile on the inside 
+of my face. 
 
-The Bible has great stories of 
-kings, death, spiritual 
+I have the Bible on me to prove I 
+can be responsible by taking care 
+of a precious object and reading 
+it seriously to learn about 
+ethics. The Bible has great stories 
+of kings, death, spiritual 
 connections, ceremonies, 
 favoritism, wrath, salvation, 
 and love. 
 
-I got the cutlets from a 
-supermarket on Route One. Plazas 
-like the ones on Route One are my 
-lifeline and joy. I don't get 
-thrill from theft but rather the 
-experience of being out and about 
-with a shopping list. 
+I like to keep up a good diet. I 
+got the cutlets from a supermarket 
+on Route One. Plazas like the ones 
+on Route One are my lifeline and 
+joy. I don't get thrill from theft 
+but rather the experience of being 
+out and about with a shopping list. 
 
-The tea is fermented and potent 
-with flavor. It stings like an 
-India Pale Ale. It's a great way 
-to detox from drinking. 
+Drinking is an important part of 
+outside. It is a hardlife to be a 
+walker. Drinking is one of those 
+secret hideaways. Drinking feels 
+like being indoors. The tea is 
+fermented and potent with flavor. 
+It stings like an India Pale Ale. 
+It's a great way to detox from 
+drinking. 
 
 I enjoy Norwalk. It has one long 
 main roadway from South to the 
