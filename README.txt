@@ -291,27 +291,41 @@ winter's cocaine body armor falls into me fast.
 
                               XVIII. 
 
+                              Nov1U 
 
+           Malachi 
+           LAW 
 
-                              Oct31A 
+2:8 "But you have turned aside from 
+    the way. You have caused many 
+    to stumble by your instruction. 
+    You have corrupted the covenant 
+    of Levi, says the LORD of hosts, 
 
-           Knifefingers 
+                              XIX. 
 
+                              Nov1U 
 
+           Asaph 
+           LAW 
 
-                              
-                              . 
+50:9  "I will not accept a bull from 
+      your house or goats from your 
+      folds. 
+50:10 "For every beast of the forest 
+      is mine, the cattle on a 
+      thousand hills. 
+50:11 "I know all the birds of the hills, 
+      and all that moves in the field 
+      is mine. 
+50:14 "Offer to God a sacrifice of 
+      thanksgiving, and perform your 
+      vows to the Most High, 
+75:9  But I will declare it forever; I 
+      will sing praises to the God of 
+      Jacob. 
 
-
-
-                              Oct31A 
-
-           Knifefingers 
-
-
-
-                              
-                              . 
+                              XX. 
 
 
 
