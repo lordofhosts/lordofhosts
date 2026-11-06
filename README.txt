@@ -8,7 +8,7 @@ license.
 
 
            Mixtape 
-           A BOOK FOR THE MEMORY 
+           A BOOK TO CLOSE MY MUSIC 
 
 
            Nick Morris 
@@ -19,28 +19,28 @@ license.
            A HOME 
 
 
-                              Oct31 
+                              Oct31A 
 
 Small 
 
                               I. 
 
-                              Oct31 
+                              Oct31A 
 
 Norwalk 
 
                               II. 
 
-                              Oct31 
+                              Oct31A 
 
 euphredes 
 
                               III. 
 
-                              Oct31 
+                              Oct31A 
 
            Small 
-           A SKETCH 
+           AN EXPERIENCE 
 
 feel small to be with Her, 
 feel big to socialize. 
@@ -52,7 +52,7 @@ walking balloon head,
 getting paid by tread. 
 
            Park 
-           AN ACT 
+           AN EXPERIENCE 
 
 I arrive at Washington Park with 
 tobacco, weed, the Bible, cutlets 
@@ -63,7 +63,7 @@ settle in.
 
                               IV. 
 
-                              Oct31 
+                              Oct31A 
 
            Saturday 
            A SONG 
@@ -87,7 +87,7 @@ with ink from insideout art.
 
                               V. 
 
-                              Oct31 
+                              Oct31A 
 
            Poems 
            A TABLE 
@@ -120,10 +120,10 @@ and spry!
 
                               VI. 
 
-                              Oct31 
+                              Oct31A 
 
            Halloween 
-           A SKETCH 
+           AN EXPERIENCE 
 
 it's cold outside, 
 there's a dead bird outside. 
@@ -139,7 +139,7 @@ AdvAdvVerb.  DDDD.    ColorVerb in ColorVerb.
 
                               VII. 
 
-                              Oct31 
+                              Oct31A 
 
            Sleep 
            A SPELL 
@@ -165,45 +165,45 @@ Adv.                 Verb.
 
                               VIII. 
 
-                              Oct31 
+                              Oct31A 
 
 Ludwig VII 
 
                               IX. 
 
-                              Oct31 
+                              Oct31A 
 
 gypsy 
 
                               X. 
 
-                              Oct31 
+                              Oct31A 
 
 Nick 
 
                               XI. 
 
-                              Oct31 
+                              Oct31A 
 
 Walnut 
 
                               XII. 
 
-                              Oct31 
+                              Oct31A 
 
 Poet 
 
                               XIII. 
 
-                              Oct31 
+                              Oct31A 
 
 Her 
 
                               XIV. 
 
-                              Nov1 
+                              Nov1U 
 
-           Obalisk 
+           Obelisk 
            A SONG 
 
 my root hugs a tree, 
@@ -218,38 +218,82 @@ smoke from the little blue rooster,
 in Washington Park that walls off South. 
 the cops doublepoach the hallway, 
 drinking Monsters as a Camel in my mouth. 
-I'm a walking cold stone obalisk, 
+I'm a walking cold stone obelisk, 
 my tattoos minting a bloody ruby past. 
 my chest's pulse thermometer hibernates, 
 winter's cocaine body armor falls into me fast. 
 
                               XV. 
 
+                              Nov1U 
 
+           Leviticus
+           LAW 
 
-                              Oct31 
+1:1 The LORD called Moses and 
+    spoke to him from the tent 
+    of meeting, saying, 
+1:2 "Speak to the people of 
+    Israel and say to them, 
+    When any one of you brings an 
+    offering to the LORD, you 
+    shall bring your offering of 
+    livestock from the herd or 
+    from the flock. 
+1:3 "If his offering is a burnt 
+    offering from the herd, he 
+    shall offer a male without 
+    blemish. He shall bring it to 
+    the entrance of the tent of 
+    meeting, that he may be 
+    accepted before the LORD. 
 
-           Knifefingers 
-
+                              XVI. 
 
-
-                              
-                              . 
+                              Nov1U 
 
+           Leviticus
+           LAW 
 
+1:4 "He shall lay his hand on the 
+    head of the burnt offering, 
+    and it shall be accepted for 
+    him to make atonement for him. 
+1:5 "Then he shall kill the bull 
+    before the LORD, and Aaron's 
+    sons the priests shall bring 
+    the blood and throw the blood 
+    against the sides of the altar 
+    that is at the entrance of the 
+    tent of meeting. 
 
-                              Oct31 
+                              XVII.
 
-           Knifefingers 
+                              Nov1U 
 
+           Study 
+           LAW 
 
+1. Write down "black squirrel" on 
+   a piece of paper in black ink. 
+2. On the other side of the paper, 
+   write down "male". 
+3. Rest the writing hand on the 
+   side of the paper that says, 
+   "black squirrel". 
+4. Profess, aloud, confessions 
+   leading up to the animal 
+   sacrifice. 
+5. Light the paper aflame and 
+   collect the ashes in a bowl. 
+6. Bathe the backpack with the 
+   ashes. 
 
-                              
-                              . 
+                              XVIII. 
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -260,7 +304,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -271,7 +315,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -282,7 +326,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -293,7 +337,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -304,7 +348,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -315,7 +359,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -326,7 +370,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -337,7 +381,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -348,7 +392,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -359,7 +403,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -370,7 +414,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -381,7 +425,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -392,7 +436,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -403,7 +447,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -414,7 +458,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -425,7 +469,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -436,7 +480,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -447,7 +491,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -458,7 +502,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -469,7 +513,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -480,7 +524,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -491,7 +535,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -502,7 +546,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -513,7 +557,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -524,7 +568,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -535,7 +579,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -546,7 +590,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -557,7 +601,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -568,7 +612,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -579,7 +623,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -590,7 +634,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -601,7 +645,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -612,7 +656,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -623,7 +667,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -634,7 +678,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -645,7 +689,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -656,7 +700,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -667,7 +711,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -678,7 +722,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -689,7 +733,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -700,7 +744,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -711,7 +755,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -722,7 +766,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -733,7 +777,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -744,7 +788,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -755,7 +799,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -766,7 +810,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -777,7 +821,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -788,7 +832,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -799,7 +843,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -810,7 +854,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -821,7 +865,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -832,7 +876,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -843,7 +887,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -854,7 +898,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -865,7 +909,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -876,7 +920,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -887,7 +931,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -898,7 +942,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -909,7 +953,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -920,7 +964,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -931,7 +975,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -942,7 +986,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -953,7 +997,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -964,7 +1008,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -975,7 +1019,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -986,7 +1030,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -997,7 +1041,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1008,7 +1052,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1019,7 +1063,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1030,7 +1074,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1041,7 +1085,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1052,7 +1096,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1063,7 +1107,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1074,7 +1118,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1085,7 +1129,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1096,7 +1140,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1107,7 +1151,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1118,7 +1162,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1129,7 +1173,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1140,7 +1184,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1151,7 +1195,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1162,7 +1206,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1173,7 +1217,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1184,7 +1228,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1195,7 +1239,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1206,7 +1250,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1217,7 +1261,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1228,7 +1272,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1239,7 +1283,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1250,7 +1294,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1261,7 +1305,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1272,7 +1316,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1283,7 +1327,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1294,7 +1338,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1305,7 +1349,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1316,7 +1360,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1327,7 +1371,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1338,7 +1382,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1349,7 +1393,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1360,7 +1404,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1371,7 +1415,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1382,7 +1426,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1393,7 +1437,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1404,7 +1448,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1415,7 +1459,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1426,7 +1470,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1437,7 +1481,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1448,7 +1492,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1459,7 +1503,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1470,7 +1514,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1481,7 +1525,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1492,7 +1536,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1503,7 +1547,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1514,7 +1558,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1525,7 +1569,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1536,7 +1580,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1547,7 +1591,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1558,7 +1602,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1569,7 +1613,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1580,7 +1624,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1591,7 +1635,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1602,7 +1646,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1613,7 +1657,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1624,7 +1668,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1635,7 +1679,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1646,7 +1690,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1657,7 +1701,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1668,7 +1712,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1679,7 +1723,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1690,7 +1734,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1701,7 +1745,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1712,7 +1756,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1723,7 +1767,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1734,7 +1778,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1745,7 +1789,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1756,7 +1800,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1767,7 +1811,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1778,7 +1822,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1789,7 +1833,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1800,7 +1844,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1811,7 +1855,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1822,7 +1866,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1833,7 +1877,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1844,7 +1888,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1855,7 +1899,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1866,7 +1910,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1877,7 +1921,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1888,7 +1932,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1899,7 +1943,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1910,7 +1954,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1921,7 +1965,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1932,7 +1976,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1943,7 +1987,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1954,7 +1998,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1965,7 +2009,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1976,7 +2020,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1987,7 +2031,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -1998,7 +2042,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2009,7 +2053,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2020,7 +2064,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2031,7 +2075,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2042,7 +2086,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2053,7 +2097,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2064,7 +2108,7 @@ winter's cocaine body armor falls into me fast.
 
 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2073,7 +2117,7 @@ winter's cocaine body armor falls into me fast.
                               
                               . 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2082,7 +2126,7 @@ winter's cocaine body armor falls into me fast.
                               
                               . 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2091,7 +2135,7 @@ winter's cocaine body armor falls into me fast.
                               
                               . 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2100,7 +2144,7 @@ winter's cocaine body armor falls into me fast.
                               
                               . 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2109,7 +2153,7 @@ winter's cocaine body armor falls into me fast.
                               
                               . 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2118,7 +2162,7 @@ winter's cocaine body armor falls into me fast.
                               
                               . 
 
-                              Oct31 
+                              Oct31A 
 
            NYC 
 
@@ -2127,7 +2171,7 @@ winter's cocaine body armor falls into me fast.
                               
                               CCCXXI. 
 
-                              Oct31 
+                              Oct31A 
 
            Greenrose 
 
@@ -2136,7 +2180,7 @@ winter's cocaine body armor falls into me fast.
                               
                               CCCXXII. 
 
-                              Oct31 
+                              Oct31A 
 
            Rubyheart 
 
@@ -2145,7 +2189,7 @@ winter's cocaine body armor falls into me fast.
                               
                               CCCXXIII. 
 
-                              Oct31 
+                              Oct31A 
 
            Bulldoglegs 
 
@@ -2154,7 +2198,7 @@ winter's cocaine body armor falls into me fast.
                               
                               CCCXXIV. 
 
-                              Oct31 
+                              Oct31A 
 
            Poetshands 
 
@@ -2163,7 +2207,7 @@ winter's cocaine body armor falls into me fast.
                               
                               CCCXXV. 
 
-                              Oct31 
+                              Oct31A 
 
            Kingsface 
 
@@ -2172,7 +2216,7 @@ winter's cocaine body armor falls into me fast.
                               
                               CCCXXVI. 
 
-                              Oct31 
+                              Oct31A 
 
            Fighterschest 
 
@@ -2181,7 +2225,7 @@ winter's cocaine body armor falls into me fast.
                               
                               CCCXXVII. 
 
-                              Oct31 
+                              Oct31A 
 
            Dadtummy 
 
@@ -2191,7 +2235,7 @@ winter's cocaine body armor falls into me fast.
                               CCCXXVIII. 
 
 
-                              Oct31 
+                              Oct31A 
 
            Artistsarms 
 
@@ -2200,7 +2244,7 @@ winter's cocaine body armor falls into me fast.
                               
                               CCCXXIX. 
 
-                              Oct31 
+                              Oct31A 
 
            Treeneck 
 
@@ -2210,7 +2254,7 @@ winter's cocaine body armor falls into me fast.
                               CCCXXX. 
 
 
-                              Oct31 
+                              Oct31A 
 
            Slickhair 
 
@@ -2219,7 +2263,7 @@ winter's cocaine body armor falls into me fast.
                               
                               CCCXXXI. 
 
-                              Oct31 
+                              Oct31A 
 
            Emeraldeyes 
 
@@ -2229,7 +2273,7 @@ winter's cocaine body armor falls into me fast.
                               CCCXXXII. 
 
 
-                              Oct31 
+                              Oct31A 
 
            Stonenails 
 
@@ -2238,7 +2282,7 @@ winter's cocaine body armor falls into me fast.
                               
                               CCCXXXIII. 
 
-                              Oct31 
+                              Oct31A 
 
            Greatback 
 
@@ -2247,7 +2291,7 @@ winter's cocaine body armor falls into me fast.
                               CCCXXXIV. 
 
 
-                              Oct31 
+                              Oct31A 
 
            Chizeledbody 
 
@@ -2255,7 +2299,7 @@ winter's cocaine body armor falls into me fast.
 
                               CCCXXXV. 
 
-                              Oct31 
+                              Oct31A 
 
            Spirithost 
 
@@ -2264,7 +2308,7 @@ winter's cocaine body armor falls into me fast.
                               CCCXXXVI. 
 
 
-                              Oct31 
+                              Oct31A 
 
            Bookbearer 
 
@@ -2272,7 +2316,7 @@ winter's cocaine body armor falls into me fast.
 
                               CCCXXXVII. 
 
-                              Oct31 
+                              Oct31A 
 
            Glowcarrier 
 
@@ -2281,7 +2325,7 @@ winter's cocaine body armor falls into me fast.
                               CCCXXXVIII. 
 
 
-                              Oct31 
+                              Oct31A 
 
            Witchman 
 
@@ -2289,7 +2333,7 @@ winter's cocaine body armor falls into me fast.
 
                               CCCXXXIX. 
 
-                              Oct31 
+                              Oct31A 
 
            Knifefingers 
 
@@ -2297,7 +2341,7 @@ winter's cocaine body armor falls into me fast.
 
                               CCCXL. 
 
-                              Oct31 
+                              Oct31A 
 
            Mystery Brew 
            A MIXTAPE 
@@ -2319,13 +2363,13 @@ Nick Morris July 16th 1993
 
                               CCCXLI. 
 
-                              Oct31 
+                              Oct31A 
 
 Mental Graffiti 
 
                               CCCXLII. 
 
-                              Oct31 
+                              Oct31A 
 
 Halloween 
 Start of Production 
