@@ -55,11 +55,101 @@ getting paid by tread.
            AN EXPERIENCE 
 
 I arrive at Washington Park with 
-tobacco, weed, the Bible, cutlets 
+tobacco, weed, the Bible, cutlets, 
 and tea. 
 
 I smoke up the whole table to 
 settle in. 
+
+I like Washington Park because it 
+is at the edge of danger, downtown, 
+and village. This is an important 
+area to show who what when where 
+how and why things go down. By 
+showing I can hold my own space 
+without bothering others, I will 
+earn my spot in Norwalk. 
+
+I find the tobacco from the 
+groundfloor which has great odds 
+of success in Norwalk but nothing 
+will compare what I've found in 
+Philly. 
+
+I get my weed from a weedman. 
+There's one particular house that 
+tosses big roaches during dark 
+next to dawn and dusk. He is a 
+regular stop that put a smile on 
+the inside of my face. 
+
+The Bible has great stories of 
+kings, death, spiritual 
+connections, ceremonies, 
+favoritism, wrath, salvation, 
+and love. 
+
+I got the cutlets from a 
+supermarket on Route One. Plazas 
+like the ones on Route One are my 
+lifeline and joy. I don't get 
+thrill from theft but rather the 
+experience of being out and about 
+with a shopping list. 
+
+The tea is fermented and potent 
+with flavor. It stings like an 
+India Pale Ale. It's a great way 
+to detox from drinking. 
+
+I enjoy Norwalk. It has one long 
+main roadway from South to the 
+bus stop that connects to East. 
+The place has city elements like 
+buses, trains, cops, and hoods 
+but it is much more like a large 
+town. It has more of a 
+villagefeel to it and the Churches 
+show it. I'm glad New Haven is a 
+week's walk away. There's many 
+great resources for survival and 
+writing in New Haven that I can 
+leverage and enjoy. 
+
+There's just enough resources to 
+have food and smoke every day for 
+my enjoyment. My goal here is to 
+become a better writer. I have 
+been writing since 2012 but it 
+wasn't until 2019 that my writing 
+had a rebirth. These seven years 
+have seen many notes, mixtapes, 
+essays, posts, pages, sheets, and 
+books. Writing is one of those 
+skills that I can take with me 
+into old age. It will continue to 
+occupy me and give my life 
+meaning without dying with my 
+youth like other skills. 
+
+I think Fairfield County is a 
+great stop for me. I have had 
+highest success in Connecticut 
+when it comes to my footpaths 
+throughout Massachusetts, Rhode 
+Island, Connecticut, New York, 
+New Jersey, Pennsylvania, 
+Delaware, and Maryland. There is 
+more treeland to ease my eyes 
+and give my personal space the 
+breathing room it needs to feel 
+safe and secure and ready to 
+work my days. 
+
+
+
+
+
 
                               IV. 
 
@@ -228,7 +318,7 @@ winter's cocaine body armor falls into me fast.
                               Nov1U 
 
            Leviticus
-           LAW 
+           A LAW 
 
 1:1 The LORD called Moses and 
     spoke to him from the tent 
@@ -253,7 +343,7 @@ winter's cocaine body armor falls into me fast.
                               Nov1U 
 
            Leviticus
-           LAW 
+           A LAW 
 
 1:4 "He shall lay his hand on the 
     head of the burnt offering, 
@@ -272,7 +362,7 @@ winter's cocaine body armor falls into me fast.
                               Nov1U 
 
            Study 
-           LAW 
+           A LAW 
 
 1. Write down "black squirrel" on 
    a piece of paper in black ink. 
@@ -294,7 +384,7 @@ winter's cocaine body armor falls into me fast.
                               Nov1U 
 
            Malachi 
-           LAW 
+           A LAW 
 
 2:8 "But you have turned aside from 
     the way. You have caused many 
@@ -307,7 +397,7 @@ winter's cocaine body armor falls into me fast.
                               Nov1U 
 
            Asaph 
-           LAW 
+           A LAW 
 
 50:9  "I will not accept a bull from 
       your house or goats from your 
@@ -327,23 +417,33 @@ winter's cocaine body armor falls into me fast.
 
                               XX. 
 
+                              Nov6F 
 
+           Study 
+           A LAW 
 
-                              Oct31A 
+                              XXI. 
 
-           Knifefingers 
+                              Nov6F 
 
+           Study 
+           A LAW 
 
+                              XXI. 
 
-                              
-                              . 
+                              Nov6F 
 
+           Study 
+           A LAW 
 
+                              XXI. 
 
-                              Oct31A 
+                              Nov1U 
 
-           Knifefingers 
+           Charm 
+           A SONG 
 
+                              XXI. 
 
 
                               
