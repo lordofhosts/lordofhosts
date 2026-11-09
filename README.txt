@@ -9,11 +9,12 @@ format, provided you give
 appropriate credit to the 
 author.
 Published by Nick Morris 
+https://github.com/lordofhosts 
 
+                              Nov 9 Mon. 
 
-           Walnut 
+           WALNUT 
            A BOOK FOR SETTLEMENT 
-
 
 One man's personal responsibility 
 to managing his own mind by his 
@@ -41,10 +42,335 @@ but now he tells the tale of
 settling down after such a 
 strong journey in mental health. 
 
+                              I. 
 
                               Nov 8 Sun. 
 
            Clouds 
 
-                              I. 
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
+
+                              Nov 8 Sun. 
+
+           Clouds 
+
+That seaship cloud began somewhere. 
+When breeze brave enough to 
+climbfly like a dragon up to the 
+peak of a mountain tackles the top 
+off onto the otherside: the 
+breeze dies suicide and the 
+mouintain gives the breeze new 
+life as a cloud sprouts. 
+
+                              II. 
 
