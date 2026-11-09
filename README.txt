@@ -61,108 +61,156 @@ life as a cloud sprouts.
 
                               Nov 8 Sun. 
 
-           Clouds 
+           Wind 
 
-That seaship cloud began somewhere. 
-When breeze brave enough to 
-climbfly like a dragon up to the 
-peak of a mountain tackles the top 
-off onto the otherside: the 
-breeze dies suicide and the 
-mouintain gives the breeze new 
-life as a cloud sprouts. 
+The windways roll between clouds 
+like bowling balls in lanes. I 
+hear the smacking of the wind 
+thud to the eardrum and airdrum 
+above. 
 
-                              II. 
+Above is the only direction. It 
+is the direction of space. 
 
-                              Nov 8 Sun. 
+Death is below. It is the 
+concrete so many layers dogpile 
+until there is no space. 
 
-           Clouds 
-
-That seaship cloud began somewhere. 
-When breeze brave enough to 
-climbfly like a dragon up to the 
-peak of a mountain tackles the top 
-off onto the otherside: the 
-breeze dies suicide and the 
-mouintain gives the breeze new 
-life as a cloud sprouts. 
-
-                              II. 
+                              III. 
 
                               Nov 8 Sun. 
 
-           Clouds 
+           Chest 
 
-That seaship cloud began somewhere. 
-When breeze brave enough to 
-climbfly like a dragon up to the 
-peak of a mountain tackles the top 
-off onto the otherside: the 
-breeze dies suicide and the 
-mouintain gives the breeze new 
-life as a cloud sprouts. 
+I sit inside of myself. My chest 
+like a carseat for comfort. She 
+is there. A noticeable shaky 
+emotion that rubs off glow on me. 
+She drives me. We Love. 
 
-                              II. 
+The park table is organized with 
+three books, smokes, and a couple 
+snacks. All my possessions come 
+to me freely. 
 
-                              Nov 8 Sun. 
-
-           Clouds 
-
-That seaship cloud began somewhere. 
-When breeze brave enough to 
-climbfly like a dragon up to the 
-peak of a mountain tackles the top 
-off onto the otherside: the 
-breeze dies suicide and the 
-mouintain gives the breeze new 
-life as a cloud sprouts. 
-
-                              II. 
+                              IV. 
 
                               Nov 8 Sun. 
 
-           Clouds 
+           Park 
 
-That seaship cloud began somewhere. 
-When breeze brave enough to 
-climbfly like a dragon up to the 
-peak of a mountain tackles the top 
-off onto the otherside: the 
-breeze dies suicide and the 
-mouintain gives the breeze new 
-life as a cloud sprouts. 
+Myself: workboots, workpants, gray 
+        sweater, snowhat, Under 
+        Armor bag. 
 
-                              II. 
+Park: scattered stone tables, rocky 
+      groundbed, stone pillar, 
+      Washington and Main, New 
+      Haven train to New York City, 
+      lightbulb trees, groundfloor 
+      spotlights. 
+
+The overhanging train tracks in 
+this towncity makes me feel the 
+same construction happened here 
+Norwalk as my Hometown Haverhill 
+where the train runs from Boston. 
+
+                              V. 
+
+                              Nov 6 Fri. 
+
+           Boston 
+
+save that cigar for a rainy day, 
+smoky underside uptop at Forest Hills. 
+eat a donut drink the coffee, 
+grab wine from the bottomhill. 
+walkthrough subway to Jackson Square, 
+walkdownhill to a raised concrete bed 
+ of grass. 
+drink wine and grab hummus from 
+ supermart, 
+walkthrough subway to North Station 
+ and get passed. 
+eat hummus drink wine and browse 
+ North Shore, 
+get off at Haverhill and go to 
+ the traintracks bridge weedshop. 
+three drinks and one eighth of 
+ Granddaddy Purp and Hip Hop. 
+
+                              VI. 
 
                               Nov 8 Sun. 
 
-           Clouds 
+           Walnut 
 
-That seaship cloud began somewhere. 
-When breeze brave enough to 
-climbfly like a dragon up to the 
-peak of a mountain tackles the top 
-off onto the otherside: the 
-breeze dies suicide and the 
-mouintain gives the breeze new 
-life as a cloud sprouts. 
+I tell people my line of work is 
+street art. I do a character. I 
+call myself Walnut. 
 
-                              II. 
+Walnut started as a voice. I picked 
+it up after swans visited me by the 
+waterfront outside of New Haven. 
+
+By the time my right to travel 
+walks the Northeast from Boston to 
+Baltimore, I'm finding the oldest 
+Theatre in America is in Philly 
+called Walnut. 
+
+Walnut has personal meaning to me 
+work and places in Boston. 
+
+                              VII. 
+
+                              Nov 4 Wed. 
+
+           Mirror 
+
+this old man on my face 
+ comes from a mountain, 
+rivers of New Hampshire boost 
+ airways to dislodge a cliffface. 
+green pastures in my eyes flock 
+ herds, 
+my curls hug my neck in place. 
+my beard grows obtuse like 
+ a king, 
+cracks and lines carve into 
+ my skin. 
+a fat nose sniffs secrets 
+ from the air, 
+my chest blooms upright 
+ like a lion and a grin. 
+my reflection is of dominance, 
+a sad look wants to dance. 
+
+                              VIII. 
 
                               Nov 8 Sun. 
 
-           Clouds 
+           Coffee 
 
-That seaship cloud began somewhere. 
-When breeze brave enough to 
-climbfly like a dragon up to the 
-peak of a mountain tackles the top 
-off onto the otherside: the 
-breeze dies suicide and the 
-mouintain gives the breeze new 
-life as a cloud sprouts. 
+I cut across Main under the 
+traintracks to forage. I walk 
+away with four roaches and 
+several looseys. A roach is the 
+halfinch of weed left at the 
+nearend of a joint. A loosey is 
+an unfinished cigarette. 
 
-                              II. 
+There's been a dead pigeon 
+outside a low activity building. 
+Right up against the doorwindow 
+since Halloween. 
+
+On my way out down Main to West, 
+I nab a coffee! Potent. Joys of 
+moneydays. 
+
+                              IX. 
 
                               Nov 8 Sun. 
 
