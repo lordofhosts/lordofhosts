@@ -136,7 +136,7 @@ to me freely.
 
 Myself: workboots, workpants, gray 
         sweater, snowhat, Under 
-        Armor bag. 
+        Armour bag. 
 
 Park: scattered stone tables, rocky 
       groundbed, stone pillar, 
@@ -457,7 +457,7 @@ feet hold two steps of hood concrete.
 hands carry french toast and coffee, 
 New Haven locomotive breezes for 
  New York City streets. 
-first communion bread stops my tongue, 
+First Communion bread stops my tongue, 
 Ovid lays railwork from the past 
  for my eyes. 
 Dunkin Donuts is my study hall, 
