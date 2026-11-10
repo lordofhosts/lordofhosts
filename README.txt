@@ -28,7 +28,7 @@ artform of poetry inside the
 skeptical chamber of worklife. 
 The hand of art as opposition as 
 refinement as a validation 
-framework beside math. 
+framework for the hand of math. 
 
 The pressure of obey rules to get 
 paid money to pay off the bills 
