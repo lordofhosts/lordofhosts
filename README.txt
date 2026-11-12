@@ -255,7 +255,7 @@ lives of the young men and Masons
 outside of the room. When such 
 mancy is a work, the only two 
 positions taken up by Masons: 
-treasuer and scribe. Become one by 
+treasurer and scribe. Become one by 
 collecting and the other by 
 writing. Leave the room. Escape 
 from the obligations Free Masons 
