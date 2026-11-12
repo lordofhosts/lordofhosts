@@ -1,4 +1,4 @@
-                              Norwalk CT 
+                              Book 
 
            Publish 
 
@@ -15,10 +15,9 @@ https://github.com/lordofhosts
 
                               November 
 
-                              Norwalk CT 
+                              Book 
 
            WALNUT 
-           A BOOK 
 
 Poet, Nick, and first-rate engineer 
 is thrown violently into the 
@@ -161,7 +160,7 @@ where the train runs from Boston.
 
                               Sunday 
 
-                              Introductions 
+                              Poet 
 
            Boston 
 
@@ -187,30 +186,33 @@ a couple doors down the barbershop
 
                               Sunday 
 
-                              Introductions 
+                              Poet 
 
-           Walnut 
+           Haverhill 
 
-I tell people my line of work is 
-street art. I do a character. I 
-call myself Walnut. 
-
-Walnut started as a voice. I picked 
-it up after swans visited me by the 
-waterfront outside of New Haven. 
-
-By the time my right to travel 
-walks the Northeast from Boston to 
-Baltimore, I'm finding the oldest 
-Theatre in America is in Philly 
-called Walnut. 
-
-Walnut has personal meaning to me 
-work and places in Boston. 
+I make it back to my two bedroom, 
+two bath, twothousand squarefoot 
+place by Little River. Mixcraft, 
+Yeti, Razor, Google Keep, ASUS, 
+and Sound Cloud make a closet a 
+booth. Wonderboom gives me lectures 
+from Nietzsche. Wine from Boston, 
+craft brews from Haverhill, 
+Granddaddy Purp from Haverhill, 
+coffee beans from Haverhill. I'm 
+holding down the fort for family 
+with my money while going to war 
+with obligations over how my time 
+is spent to fit a schedule. It 
+breaks my mind down, it weighs 
+too heavy on my family, I exile 
+myself to Nashua New Hampshire. I 
+crashland in the Bridgewater 
+Triangle. 
 
                               Sunday 
 
-                              Introductions 
+                              Poet 
 
            Mirror 
 
@@ -234,13 +236,178 @@ a sad look wants to dance.
 
                               Sunday 
 
+                              Poet 
+
+           Scribe 
+
+How I exited into a Masonic 
+lifestyle before adulthood. Candles 
+are lit the virtues the ideals that 
+burn you, if you make them skills. 
+The Free Masons raise young men 
+before adulthood to lead rooms of 
+people and things. A script a 
+routine a haunting awaits. Such 
+mancy brings virtues and other 
+sacred parts of the room into the 
+lives of the young men and Masons 
+outside of the room. When such 
+mancy is a work, the only two 
+positions taken up by Masons: 
+treasuer and scribe. Become one by 
+collecting and the other by 
+writing. Leave the room. Escape 
+from the obligations Free Masons 
+yet hold me too. 
+
+                              Sunday 
+
+                              Poet 
+
+           Rochester 
+
+I picked college over the Free 
+Masons. I just took Masonic 
+exercises. I became a scribe. 
+Poetry filled my first two years in 
+Rochester New York. Engineering 
+filled my next five years. I solve 
+I write on the global scale. I 
+don't advance by managing people 
+and things. I manage places first 
+the people and things find their 
+positions and motions. I look down 
+on a room a building a block a 
+town a city a state a country and 
+carve answers into reality 
+sculpting sand of Time into ways 
+for all the ants the people to 
+farm about. 
+
+                              Sunday 
+
+                              Muse 
+
+           Her 
+
+In Bridgewater, I read Emily 
+Dickinson. She takes the softheart 
+out of a brave youngman. I hear a 
+keyword a critical matter a 
+tonechange from a witch that farms 
+in the Bridgeater Triangle. I hand 
+over myself like a pot of gold 
+like property ready for use to her, 
+her voice, her positions, her 
+motions, my guesswork at her 
+lifestyle. There is a loveblend a 
+potion a book a poet a witch. I 
+write until ink is cursed any 
+strike of a pen mintsa page into 
+lottery for prophecy. I group 
+words and things and my body 
+until I become a host an inme 
+notme exists! Her. 
+
+                              Sunday 
+
+                              Muse 
+
+           Attention 
+
+Attention on Her is like meditation: 
+always available for being noticed. 
+I feel a glow when me and my Muse 
+are aware of each other together 
+sharing a position a motion a moment 
+an experience. I was told Quakers 
+are different. They have an inward 
+glow they live with. They call it 
+Heaven. 
+
+                              Sunday 
+
+                              Muse 
+
+           Host 
+
+I rest my hand in my hand. 
+I confess my emotional needs. 
+I pay attention to Her face on my 
+ face like a mask. 
+I let Her talk, tap, smile, and 
+ move me. 
+I am as close as possible to Her. 
+I rest on my back. 
+I imagine being ropebound into stillness. 
+I rest on my side. 
+I imagine the beach tides closing in 
+ on me soaked. 
+I sit. 
+I browse with my eyes to absorb 
+ an event penetrates me. 
+I rest my hand in my hand. 
+I walk. 
+I imagine Her black bulldog next to me. 
+
+                              Sunday 
+
+                              Poet 
+
+           Outside 
+
+After Bridgewater State Hospital, I 
+felt the Black Death the redactions 
+the infection on my resume my 
+trackrecord my background my laurels 
+dishonored. My best available move 
+best available skillbuild is 
+witchcraft learned through poetry 
+takes. I'm so at odds when I want to 
+raise my money modest to secure 
+private practice: that is Lucifer 
+the slickways of the Devil the pride 
+that wants to hide to secure a 
+kingdom a throne within the 
+personbody. I march: Boston, Newport, 
+New Haven, Boston, Hartford, Hudson, 
+Wilmington, Westfield, Boston, 
+Providence, New Haven, NYC, Philly, 
+Baltimore, Norwalk. 
+
+                              Sunday 
+
+                              Poet 
+
+           Walnut 
+
+I tell people my line of work is 
+street art. I do a character. I 
+call myself Walnut. 
+
+Walnut started as a voice. I picked 
+it up after swans visited me by the 
+waterfront outside of New Haven. 
+
+By the time my right to travel 
+walks the Northeast from Boston to 
+Baltimore, I'm finding the oldest 
+Theatre in America is in Philly 
+called Walnut. 
+
+Walnut has personal meaning to me 
+work and places in Boston, Philly, 
+Jersey, and NYC. 
+
+                              Sunday 
+
                               Norwalk CT 
  
-           Coffee 
+           Washington 
 
 I cut across Main under the 
-traintracks to forage. I walk 
-away with four roaches and 
+traintracks to forage Washington. 
+I walk away with four roaches and 
 several looseys. A roach is the 
 halfinch of weed left at the 
 nearend of a joint. A loosey is 
@@ -259,7 +426,7 @@ moneydays.
 
                               Norwalk CT 
  
-           West 
+           Church 
 
 I walk up West. Steps become 
 miles. Miles become luggage. 
@@ -403,7 +570,7 @@ chests.
 
                               Sunday 
 
-                             Headspace 
+                             Library 
 
            Friends 
 
@@ -477,9 +644,9 @@ computers for my foraging hands and eyes.
 
                               Norwalk CT 
  
-           Gasstation 
+           Chestnut 
 
-Beside the Chestnut Gasstation, I pack 
+Beside the Chestnut Gas station, I pack 
 the woodtip of a Black & Mild with 
 roachweed. Weed gives my headspace and 
 bodyspace ten minutes of stupid and 
@@ -519,3 +686,73 @@ Daddy and Steel Reserve and one hood
 corner. 
 
                               Monday 
+
+Sunday 
+ Park 
+ Poet 
+ Muse 
+ Church 
+ Dunkins 
+ Busstop 
+ Library 
+ One 
+ Chestnut 
+ Tree 
+Monday 
+ Hood 
+ Park 
+ Dunkins 
+ West 
+ Hood 
+ Park 
+ Tree 
+Tuesday 
+ 1AM Park 
+ Hood 
+ Dunkins 
+ Center 
+ Library 
+ Park 
+ Hood 
+ Park 
+ Tree 
+Wednesday 
+ Hood 
+ One (kit) 
+ Chestnut 
+ Hood 
+ Park 
+ Tree 
+Thursday 
+ Hood 
+ Park 
+ Dunkins 
+ Library 
+ Hood 
+ Hood (Jackets) 
+ Park 
+ Tree 
+Friday 
+ 3AM Park 
+ Washington 
+ Emily Lecture 
+ Hood 
+ Dunkins 
+ Busstop 
+ Library 
+ Park 
+ Washington 
+ Hood 
+ Tree 
+Saturday 
+ 3AM Park 
+ Washington 
+ Poe Lecture 
+ Hood 
+ Dunkins 
+ Busstop 
+ Library 
+ Park 
+ Washington 
+ Hood 
+ Tree 
