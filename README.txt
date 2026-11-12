@@ -653,8 +653,8 @@ roachweed. Weed gives my headspace and
 bodyspace ten minutes of stupid and 
 glow. My mind normally churns harsh 
 wordplay like distilling crude oil 
-through pipeline and vats to reshape 
-into lamp oil and jet fuel. 
+through pipeline and chambers to 
+reshape into lamp oil and jet fuel. 
 
 I eat my Avocado Spicy Turkey from 
 Wegmans and nightwalk to my treebed. 
