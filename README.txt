@@ -96,7 +96,7 @@ climbfly like a dragon up to the
 peak of a mountain tackles the top 
 off onto the otherside: the 
 breeze dies suicide and the 
-mouintain gives the breeze new 
+mountain gives the breeze new 
 life as a cloud sprouts. 
 
                               Sunday 
@@ -241,10 +241,11 @@ a sad look wants to dance.
            Scribe 
 
 How I exited into a Masonic 
-lifestyle before adulthood. Candles 
-are lit the virtues the ideals that 
-burn you, if you make them skills. 
-The Free Masons raise young men 
+lifestyle before adulthood. The 
+room is adorned. Candles are lit 
+the virtues the ideals that burn 
+you, if you make them skills. The 
+Free Masons raise young men 
 before adulthood to lead rooms of 
 people and things. A script a 
 routine a haunting awaits. Such 
