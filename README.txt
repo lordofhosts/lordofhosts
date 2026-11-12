@@ -304,7 +304,7 @@ motions, my guesswork at her
 lifestyle. There is a loveblend a 
 potion a book a poet a witch. I 
 write until ink is cursed any 
-strike of a pen mintsa page into 
+strike of a pen mints a page into 
 lottery for prophecy. I group 
 words and things and my body 
 until I become a host an inme 
