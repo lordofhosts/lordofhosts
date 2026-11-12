@@ -682,7 +682,7 @@ slow and simple and steady to keep the
 Lord in agreement with my settlement. 
 
 Me and my ten dollars find floorweed 
-before four loose ones and Natty 
+before five loose ones and Natty 
 Daddy and Steel Reserve and one hood 
 corner. 
 
