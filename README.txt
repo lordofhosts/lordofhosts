@@ -1,3 +1,5 @@
+                              Norwalk CT 
+
            Publish 
 
 Copyright © 2026 Nick Morris 
@@ -11,20 +13,30 @@ author.
 Published by Nick Morris 
 https://github.com/lordofhosts 
 
-                              Nov 10 Tue. 
+                              November 
+
+                              Norwalk CT 
 
            WALNUT 
-           A BOOK FOR SETTLEMENT 
+           A BOOK 
 
-PhD student, Nick, a first-rate 
-engineer is thrown violently into 
-the confusion of everyday life. 
-He bestows upon himself a personal 
-responsibility to find worklife 
-respectable as his audit before 
-giving it his respect. He retreats 
-with his two hands into the 
-artform of poetry inside the 
+Poet, Nick, and first-rate engineer 
+is thrown violently into the 
+confusion of worklife. The clock 
+not to watch but be watched by as 
+it sees the worker does not respect 
+the workplace enough for the work: 
+the event. It is the place the 
+manager that turns the lights the 
+respect the event the place on. 
+The worker does not clockin until 
+the boss sees the whites of the 
+worker's eyes. Nick bestows upon 
+himself a personal responsibility 
+to find worklife respectable as his 
+audit before giving it his respect. 
+He retreats with his two hands into 
+the artform of poetry against the 
 skeptical chamber of worklife. 
 The hand of art as opposition as 
 refinement as a validation 
@@ -38,18 +50,17 @@ time regardless of any deals.
 It is his mind regardless of any 
 deals. His private pride hovers 
 above everything like the Lord of 
-Hosts that wants to reenter the 
-world. His engineer's head 
-wants to tower over people, 
-places, and things to spot his 
-optimal living conditions. 
+Hosts fishing for His next prophet. 
+Nick's engineer head wants to tower 
+over places to spot his optimal 
+living conditions. 
 
-One day, he enters into aggression 
-his next gates: his indignation 
-paid the gatekeeper well for him to 
-then fall from grace so that he may 
-live his days to reinvent his face 
-place to place. 
+One day, his hands make use of 
+aggression his next gates: his 
+indignation paid the gatekeeper well 
+for him to then fall from grace so 
+that he may live his days to 
+reinvent his face place to place. 
 
 His rockbottom: walk the 
 groundfloor. Travel or die. Travel 
@@ -62,24 +73,21 @@ and Route 40 to name a few longer
 ones. 
 
 The entire Northeast from Boston to 
-Baltimore the people the places the 
-things all play a part in Nick's 
-struggle to live--with his pride 
-that demands to feel to be the 
+Baltimore the places all play a part 
+in Nick's struggle to live--with his 
+pride that demands to feel to be the 
 presence of a statue to count. He 
 sets his eyes on New Haven. This 
-thronechair is made of Ivy and 
-Streets. It is the city that wears 
-banners of books and bookies and 
-gambling and probabilities and 
-statistics. Nick will walk these 
-lands that best look back up at 
-him with his walking head to the 
-ground. 
+thronechair is made of Ivory and 
+Stone. It is the city that wears 
+banners from books to bookies. 
+He will walk these lands that 
+best look back up at him with his 
+walking head to the ground. 
 
-                              I. 
+                              Age 33 Years 
 
-                              Nov 8 Sun. 
+                              Norwalk CT 
 
            Clouds 
 
@@ -92,9 +100,9 @@ breeze dies suicide and the
 mouintain gives the breeze new 
 life as a cloud sprouts. 
 
-                              II. 
+                              Sunday 
 
-                              Nov 8 Sun. 
+                              Norwalk CT 
 
            Wind 
 
@@ -111,9 +119,9 @@ Death is below. It is the
 concrete so many layers dogpile 
 until there is no space. 
 
-                              III. 
+                              Sunday 
 
-                              Nov 8 Sun. 
+                              Norwalk CT 
 
            Chest 
 
@@ -128,15 +136,15 @@ three books, smokes, and a couple
 snacks. All my possessions come 
 to me freely. 
 
-                              IV. 
+                              Sunday 
 
-                              Nov 8 Sun. 
+                              Norwalk CT 
 
            Park 
 
 Myself: workboots, workpants, gray 
-        sweater, snowhat, Under 
-        Armour bag. 
+        sweater, snowhat, Target 
+        shopping bag. 
 
 Park: scattered stone tables, rocky 
       groundbed, stone pillar, 
@@ -151,9 +159,9 @@ same construction happened here
 Norwalk as my Hometown Haverhill 
 where the train runs from Boston. 
 
-                              V. 
+                              Sunday 
 
-                              Nov 6 Fri. 
+                              Introductions 
 
            Boston 
 
@@ -174,10 +182,12 @@ get off at Haverhill and go to
  the traintracks bridge weedshop. 
 three drinks and one eighth of 
  Granddaddy Purp and Hip Hop. 
+a couple doors down the barbershop 
+ my Caesar cut my Mixtape tour. 
 
-                              VI. 
+                              Sunday 
 
-                              Nov 8 Sun. 
+                              Introductions 
 
            Walnut 
 
@@ -198,9 +208,9 @@ called Walnut.
 Walnut has personal meaning to me 
 work and places in Boston. 
 
-                              VII. 
+                              Sunday 
 
-                              Nov 4 Wed. 
+                              Introductions 
 
            Mirror 
 
@@ -222,10 +232,10 @@ my chest blooms upright
 my reflection is of dominance, 
 a sad look wants to dance. 
 
-                              VIII. 
+                              Sunday 
 
-                              Nov 8 Sun. 
-
+                              Norwalk CT 
+ 
            Coffee 
 
 I cut across Main under the 
@@ -245,10 +255,10 @@ On my way out down Main to West,
 I nab a coffee! Potent. Joys of 
 moneydays. 
 
-                              IX. 
+                              Sunday 
 
-                              Nov 8 Sun. 
-
+                              Norwalk CT 
+ 
            West 
 
 I walk up West. Steps become 
@@ -270,9 +280,9 @@ presence. I will tell, it is a large
 blind spot to expect no work no play 
 from the Lord and the Devil. 
 
-                              X. 
+                              Sunday 
 
-                              Nov 3 Tue. 
+                              Church 
 
            Devil 
 
@@ -295,9 +305,9 @@ pour the Spirit in everything.
 I sit in Church my hand in my hand, 
 the oldest friend of each word that lands. 
 
-                              XI. 
+                              Sunday 
 
-                              Nov 2 Mon. 
+                              Church 
 
            Lord 
 
@@ -320,9 +330,9 @@ a meal is crumbs.
 a smoke is prize, 
 a coffee is rum. 
 
-                              XII. 
+                              Sunday 
 
-                              Nov 10 Tue. 
+                              Church 
 
            Radio 
 
@@ -345,9 +355,9 @@ There is a ghostly broadcast to
 my mind a regular topic is a 
 radio channel. 
 
-                              XIII. 
+                              Sunday 
 
-                              Nov 3 Tue. 
+                              Church 
 
            Cursed 
 
@@ -369,10 +379,10 @@ pass into a lottery for stints.
 I am gambler and double am 
  choice and hint. 
 
-                              XIV. 
+                              Sunday 
 
-                              Nov 9 Mon. 
-
+                              Norwalk CT 
+ 
            Library 
 
 I leave at the end of Mass noontime 
@@ -391,9 +401,9 @@ and maths. Books are minted paper are
 monies are deposits are treasure 
 chests. 
 
-                              XV. 
+                              Sunday 
 
-                              Nov 10 Tue. 
+                             Headspace 
 
            Friends 
 
@@ -415,10 +425,10 @@ road away from symbol spinners: what
 of those same stars in other fields 
 without these hill's problems? 
 
-                              XVI. 
+                              Sunday 
 
-                              Nov 10 Tue. 
-
+                              Norwalk CT 
+ 
            One 
 
 I walk past Mathew Park under the 
@@ -438,10 +448,10 @@ this is a Mom or a Dad. These places
 I forage mean I can have material 
 happiness. 
 
-                              XVII. 
+                              Sunday 
 
-                              Nov 3 Tue. 
-
+                              Norwalk CT 
+ 
            Loot 
 
 Space Dust parade in my hand, 
@@ -463,10 +473,10 @@ Ovid lays railwork from the past
 Dunkin Donuts is my study hall, 
 computers for my foraging hands and eyes. 
 
-                              XVIII. 
+                              Sunday 
 
-                              Nov 10 Tue. 
-
+                              Norwalk CT 
+ 
            Gasstation 
 
 Beside the Chestnut Gasstation, I pack 
@@ -484,10 +494,10 @@ Fortyfive degree uphill rockland to
 scissor a tree and my head on stone 
 and sleep in jackets. 
 
-                              XIX. 
+                              Sunday 
 
-                              Nov 10 Tue. 
-
+                              Norwalk CT 
+ 
            Hood 
 
 I wake up and see the streetweeper. 
@@ -508,4 +518,4 @@ before four loose ones and Natty
 Daddy and Steel Reserve and one hood 
 corner. 
 
-                              XX. 
+                              Monday 
