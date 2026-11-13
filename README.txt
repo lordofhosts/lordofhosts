@@ -380,6 +380,13 @@ sculpting sand of Time into ways
 for all the ants the people to 
 farm about. 
 
+Back home from college, I value a 
+place, the Masonic Lodge of 
+Haverhill, more than a female 
+member of the very same rooms 
+unto assault. I crashland in the 
+Bridgewater Triangle. 
+
                               Sunday 
 
                               Muse 
