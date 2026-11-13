@@ -84,9 +84,103 @@ He will walk these lands that
 best look back up at him with his 
 walking head to the ground. 
 
-                              Age 33 Years 
+                              Age 33 
 
-                              Norwalk CT 
+                              Song 
+
+           Geas 
+
+The words listened by and spoken or 
+sung by the bard, Nick, rewrite Nick's 
+destiny until the terms are met: 
+
+  Hey, Mr. Rager, Mr. Rager 
+  Tell me where you're goin', tell us 
+   where you're headed 
+  (I'm off on the adventure) Mr. Rager 
+  Tell me some of your stories, tell 
+   us of your travels 
+  Hey, Mr. Rager, Mr. Rager 
+  Tell me where you're goin', tell us 
+   where you're headed 
+  (I'm on my way to heaven) Mr. Rager 
+  Can we tag along? Can we take the 
+   journey? 
+
+  Knocked down round for round 
+  You're feelin' like you're shot down 
+   on the ground
+  When will the fantasy end?
+  When will the heaven begin? Yeah
+  You might be knocked down round for 
+   round
+  You're feelin' like you're shot 
+   down on the ground
+  When will the fantasy end? Yeah
+  When will the heaven begin? Yeah
+  Woah now 
+
+                              ℗ 2010 Universal Motown Records 
+
+                              Song 
+
+           Geas 
+
+The words listened by and spoken or 
+sung by the bard, Nick, rewrite Nick's 
+destiny until the terms are met: 
+
+  Headphones tune in to: 
+    Lil Dicky - $ave Dat Money feat. 
+     Fetty Wap and Rich Homie Quan 
+
+      Across the road I tell Lil' Dicky 
+      because the Holy Spirit will send 
+      the message to him somehow: 
+
+        "Soi'ma poet! 
+         I'm stronglegging a tour! 
+         Where the premise is how can I 
+          make the most epic rap epic ever 
+          without dealing in money! 
+
+        "The whiteman only survives many 
+         places with a stiffneck, a danceact, 
+         a lowmoney hustle done hard. I 
+         change the groundfloor to the 
+         stageplay pay attention to me 
+         Walnut better than indoors pick a 
+         room and give me my space I own 
+         anywhere I stand. 
+
+                              ℗ 2015 Commission Records 
+
+                              Location 
+
+           NORWALK 
+
+                         Busstop->East--->New Haven
+                         ^ 
+                         |
+               Dunkins<--Library->Church 
+                         ^
+               Hospital  | 
+               ^         | 
+               |         | 
+New York City<-One<------| 
+                         v 
+               Tree<-----West   River 
+                         ^      ^ 
+                         |      | 
+                         v      | 
+               Park<-----Main-->Washington 
+                         ^ 
+                         | 
+                         Hood 
+
+                              2026 
+
+                              Norwalk 
 
            Clouds 
 
@@ -101,7 +195,7 @@ life as a cloud sprouts.
 
                               Sunday 
 
-                              Norwalk CT 
+                              Norwalk 
 
            Wind 
 
@@ -120,7 +214,7 @@ until there is no space.
 
                               Sunday 
 
-                              Norwalk CT 
+                              Norwalk 
 
            Chest 
 
@@ -137,7 +231,7 @@ to me freely.
 
                               Sunday 
 
-                              Norwalk CT 
+                              Norwalk 
 
            Park 
 
@@ -402,7 +496,7 @@ Jersey, and NYC.
 
                               Sunday 
 
-                              Norwalk CT 
+                              Norwalk 
  
            Washington 
 
@@ -425,7 +519,7 @@ moneydays.
 
                               Sunday 
 
-                              Norwalk CT 
+                              Norwalk 
  
            Church 
 
@@ -549,7 +643,27 @@ I am gambler and double am
 
                               Sunday 
 
-                              Norwalk CT 
+                              Church 
+
+           Matrix 
+
+In Genesis, the material snake coaxed the material apple forbidden to be eat by woman and man resulting in material consequences of labor to satisfy hunger and labor to satisfy birth hunger and 
+
+                              Sunday 
+
+                              Church 
+
+           Confession 
+
+                              Sunday 
+
+                              Church 
+
+           Deal 
+
+                              Sunday 
+
+                              Norwalk 
  
            Library 
 
@@ -595,7 +709,7 @@ without these hill's problems?
 
                               Sunday 
 
-                              Norwalk CT 
+                              Norwalk 
  
            One 
 
@@ -618,7 +732,7 @@ happiness.
 
                               Sunday 
 
-                              Norwalk CT 
+                              Norwalk 
  
            Loot 
 
@@ -639,11 +753,12 @@ First Communion bread stops my tongue,
 Ovid lays railwork from the past 
  for my eyes. 
 Dunkin Donuts is my study hall, 
-computers for my foraging hands and eyes. 
+Forage KiD CuDi in the Library by 
+ hands, ears, and eyes. 
 
                               Sunday 
 
-                              Norwalk CT 
+                              Norwalk 
  
            Chestnut 
 
@@ -660,11 +775,29 @@ I eat my Avocado Spicy Turkey from
 Wegmans and nightwalk to my treebed. 
 Fortyfive degree uphill rockland to 
 scissor a tree and my head on stone 
-and sleep in jackets. 
+and nest in jackets. 
 
                               Sunday 
 
-                              Norwalk CT 
+                              Lecture 
+ 
+           Leviticus 
+
+                              Sunday 
+
+                              Lecture 
+ 
+           Chronicles 
+
+                              Sunday 
+
+                              Lecture 
+ 
+           Thanksgiving 
+
+                              Sunday 
+
+                              Norwalk 
  
            Hood 
 
@@ -757,3 +890,33 @@ Saturday
  Washington 
  Hood 
  Tree 
+
+. 
+. 
+. 
+
+                              Location 
+
+           NEW HAVEN 
+
+Boston     Grand  
+^          | 
+|          | 
+Union<-----| 
+           | 
+Witchshop<-|------>Church 
+           v 
+Library<---Green----------->College->One->Norwalk 
+           ^                ^ 
+Yale<------|                | 
+           v                v 
+           York--->Theatre->Books 
+           ^                ^ 
+           |                | 
+           Center           Hood 
+
+                              2026 
+
+. 
+. 
+. 
