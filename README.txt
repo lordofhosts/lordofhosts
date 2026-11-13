@@ -158,7 +158,7 @@ destiny until the terms are met:
 
                               Location 
 
-           NORWALK 
+           Norwalk 
 
                          Busstop->East--->New Haven
                          ^ 
@@ -460,17 +460,19 @@ dishonored. My best available move
 best available skillbuild is 
 witchcraft learned through poetry 
 takes. I'm so at odds when I want to 
-raise my money modest to secure 
+raise my money modestly to secure 
 private practice: that is Lucifer 
 the slickways of the Devil the pride 
 that wants to hide to secure a 
 kingdom a throne within the 
 personbody. I march: Boston, Newport, 
 New Haven, Boston, Springfield, 
-Hartford, Hudson, Wilmington, Newark, 
-Springfield, Boston, Providence, 
-New Haven, New York City, Philadelphia, 
-Baltimore, Norwalk. 
+Hartford, Poughkeepsie, Newark, 
+Wilmington, Newark, Springfield, 
+Boston, Providence, New Haven, 
+New York City, Philadelphia, 
+Baltimore, Philadelphia, 
+New York City, Norwalk. 
 
                               Sunday 
 
@@ -600,9 +602,32 @@ a coffee is rum.
 
                               Church 
 
+           Matrix 
+
+In Genesis, the material snake 
+coaxed the material apple 
+forbidden to be eat by woman 
+and man resulting in material 
+consequences of labor to 
+satisfy hunger and labor to 
+satisfy birth, and exile from 
+Heaven on Earth. Heaven 
+nonmateiral. Earth material. 
+Thought nonmaterial. Action 
+material. Lord nonmaterial. 
+Devil material. Material 
+crossed over with nonmaterial. 
+That is to understand a matrix 
+as old as time nonmaterial and 
+space material. 
+
+                              Sunday 
+
+                              Church 
+
            Cursed 
 
-this ink is cursed from the 
+my ink is cursed from the 
  felttip, 
 my rightthumb fans open a 
  bookpage to prophecy. 
@@ -649,29 +674,6 @@ radio channel.
 
                               Church 
 
-           Matrix 
-
-In Genesis, the material snake 
-coaxed the material apple 
-forbidden to be eat by woman 
-and man resulting in material 
-consequences of labor to 
-satisfy hunger and labor to 
-satisfy birth, and exile from 
-Heaven on Earth. Heaven 
-nonmateiral. Earth material. 
-Thought nonmaterial. Action 
-material. Lord nonmaterial. 
-Devil material. Material 
-crossed over with nonmaterial. 
-That is to understand a matrix 
-as old as time nonmaterial and 
-space material. 
-
-                              Sunday 
-
-                              Church 
-
            Confession 
 
 I am writer and sojourner to 
@@ -680,7 +682,7 @@ existence with a female spirit
 under much Earth authority 
 overrun by much Holy and unholy 
 Spirit authority overhung by 
-much Power: your authority Lord. 
+much Power: your authority, Lord. 
 I forage events like scratch 
 tickets. 
 
@@ -692,8 +694,8 @@ talks.
 
 I diverge. I double. I walk. I 
 write to pay authority off. 
-Lucifer walks nearby this 
-Sovereign mission. I need 
+Lucifer walks nearby my 
+Sovereignty mission. I need 
 cleanliness, Lord. 
 
                               Sunday 
@@ -715,13 +717,38 @@ Be slow, simple, and steadfast.
  
            Dunkins 
 
-I leave at the end of Mass noontime 
-freshair. The smoke and words filled 
-the Church. Smoker's choice and poet's 
+I leave at the end of Mass 
+noontime freshair. The smoke 
+and words filled the Church. 
+Smoker's choice and poet's 
 confessions are roles to become 
 spiritual. 
 
-I cross the street of the Church head into Dunkins get the bathroom. My double Target bag is from the Hospital. Three shirts, 
+I cross the street of the Church 
+head into Dunkins get the 
+bathroom. My double Target bag is 
+from the hospital. Three shirts, 
+one jacket, and the Bible because 
+of one indiawoman. The police here 
+don't play street theatre fair. 
+They join the stageact. Music and 
+smoke in the back. Three water 
+bottles are filled with sinkwater. 
+
+I settle into a table to fish my 
+first ritual from the Lord. Malachi 
+brings hellfire from the Lord to end 
+the Old Testament. Levi was 
+disrespected. Law to Moses 
+disrespected. Chronicles tells tales 
+of kings and levites getting bounty 
+or death from the Lord. The first 
+law to Moses in Leviticus. Next to 
+David: Asaph. 
+
+My lecture notes are finished. I head 
+out on the road to rehearse. In the 
+parkinglot a man gifts me ten dollars! 
 
                               Sunday 
 
@@ -741,7 +768,7 @@ chests.
 
                               Sunday 
 
-                             Library 
+                              Library 
 
            Friends 
 
@@ -785,7 +812,7 @@ northeast to get bitten off by
 New Haven. 
 
 I stand on steps as a stage, and 
-the props: MArlboro leftover, a 
+the props: Marlboro leftover, a 
 leafbed 4Aces, empty vodka, and my 
 Target bag. 
 
@@ -797,7 +824,7 @@ Target bag.
 
 I walk past Mathew Park under the 
 bridge Route 1 away from the hospital. 
-Stamford is eight miles. New York City 
+Stamford is nine miles. New York City 
 is many more. Roads like Route 1 are a 
 breeze in my memory of walking from 
 Elizabeth New Jersey into New York 
@@ -850,7 +877,7 @@ roachweed. Weed gives my headspace and
 bodyspace ten minutes of stupid and 
 glow. My mind normally churns harsh 
 wordplay like distilling crude oil 
-through pipeline and chambers to 
+through pipelines and chambers to 
 reshape into lamp oil and jet fuel. 
 
 I eat my Avocado Spicy Turkey from 
@@ -865,7 +892,27 @@ and nest in jackets.
  
            Leviticus 
 
-We can make modern use 
+We can make modern use of Leviticus. 
+The first law from the Lord lists 
+the order of operations to perform a 
+bull offering that is accepted by 
+the Lord. This can be done with a 
+discrete order of events. Each time 
+the event series is written out, a 
+simulation performs as a thought 
+experiment. 
+
+Visualize Seven Movements: 
+  Get a male bulldog. 
+  Go to a tree. 
+  Lay the head of the dog at the 
+   base of the tree with one hand 
+   palm down on the dog's head. 
+  Speak aloud confessions relevant. 
+  Cut the throat of the dog unto 
+   death. 
+  Toss the blood on the tree. 
+  Bury the dog nearby. 
 
                               Sunday 
 
@@ -873,7 +920,22 @@ We can make modern use
  
            Chronicles 
 
-We can use the first few stories of David 
+We can use the first few stories of 
+David up until the Lord graces David 
+that a house will be made for him by 
+Himself, and the one before last of 
+Hezekiah to validate the first law 
+of Leviticus. Chronicles is many 
+years apart from Moses receiving 
+said first law. We have a series of 
+successful trials at the said start 
+and end of Chronicles. The last 
+storyline of Chronicles has a 
+series of failures from mistrials. 
+A simple comparison between two 
+piles of good and bad show the first 
+law is bountiful when applied well 
+and disastrous to misapply. 
 
                               Sunday 
 
@@ -882,6 +944,20 @@ We can use the first few stories of David
            Thanksgiving 
 
 Asaph and his descendants are 
+singers to and for the Lord. They 
+raise the energy to connect with 
+the Lord. They grace the Lord with 
+mention of His past dealings. 
+
+Asaph said the Lord need none of 
+the first law of Leviticus because 
+the Lord already owns all that 
+treads the land and water. Rather 
+words of gratitude to and for the 
+Lord on the very ground you still 
+stand like it is time for 
+Thanksgiving and the Lord is with 
+you two alone. 
 
                               Sunday 
 
@@ -903,23 +979,16 @@ slow and simple and steady to keep the
 Lord in agreement with my settlement. 
 
 Me and my ten dollars find floorweed 
-before five loose ones and Natty 
-Daddy and Steel Reserve and one hood 
-corner. 
+before buying five loose ones and Natty 
+Daddy and Steel Reserve to hold down 
+an unused hood corner for an hour. 
 
                               Monday 
 
-Sunday 
- Park 
- Poet 
- Muse 
- Church 
- Dunkins 
- Busstop 
- Library 
- One 
- Chestnut 
- Tree 
+. 
+. 
+. 
+
 Monday 
  Hood 
  Park 
@@ -985,7 +1054,7 @@ Saturday
 
                               Location 
 
-           NEW HAVEN 
+           New Haven 
 
 Boston     Grand  
 ^          | 
