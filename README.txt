@@ -67,7 +67,7 @@ groundfloor. Travel or die. Travel
 or get arrested. Travel or stay 
 miserable. Travel or become an 
 addict. He chooses relentless 
-trekking for years on roadways 
+trekking for two years on roadways 
 like Route 1, Route 9w, Route 202, 
 and Route 40 to name a few longer 
 ones. 
