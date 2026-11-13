@@ -135,7 +135,7 @@ destiny until the terms are met:
     Lil Dicky - $ave Dat Money feat. 
      Fetty Wap and Rich Homie Quan 
 
-      Across the road I tell Lil' Dicky 
+      Across the road I tell Lil Dicky 
       because the Holy Spirit will send 
       the message to him somehow: 
 
