@@ -9,7 +9,8 @@ copy, and redistribute the
 material in any medium or 
 format, provided you give 
 appropriate credit to the 
-author.
+author. 
+
 Published by Nick Morris 
 https://github.com/lordofhosts 
 
@@ -465,9 +466,10 @@ the slickways of the Devil the pride
 that wants to hide to secure a 
 kingdom a throne within the 
 personbody. I march: Boston, Newport, 
-New Haven, Boston, Hartford, Hudson, 
-Wilmington, Westfield, Boston, 
-Providence, New Haven, NYC, Philly, 
+New Haven, Boston, Springfield, 
+Hartford, Hudson, Wilmington, Newark, 
+Springfield, Boston, Providence, 
+New Haven, New York City, Philadelphia, 
 Baltimore, Norwalk. 
 
                               Sunday 
@@ -477,12 +479,14 @@ Baltimore, Norwalk.
            Walnut 
 
 I tell people my line of work is 
-street art. I do a character. I 
+street theatre. I do a character. I 
 call myself Walnut. 
 
 Walnut started as a voice. I picked 
 it up after swans visited me by the 
-waterfront outside of New Haven. 
+waterfront outside of New Haven. His 
+first role was to make me giggle. He 
+still does. We do tragedy. 
 
 By the time my right to travel 
 walks the Northeast from Boston to 
@@ -596,6 +600,30 @@ a coffee is rum.
 
                               Church 
 
+           Cursed 
+
+this ink is cursed from the 
+ felttip, 
+my rightthumb fans open a 
+ bookpage to prophecy. 
+my rightthumbnail flips ghost coins 
+ onto the floor, 
+my hands and torso host a 
+ female supremacy. 
+my legs cargoship my home, 
+my boots tapdance with pebbles. 
+my pockets are pillows with 
+ treasure, 
+my skull lets memorabilia jumble. 
+my words my heart mints, 
+pass into a lottery for stints. 
+I am gambler and double am 
+ choice and hint. 
+
+                              Sunday 
+
+                              Church 
+
            Radio 
 
 The radio hypnotizes the only 
@@ -621,33 +649,24 @@ radio channel.
 
                               Church 
 
-           Cursed 
-
-this ink is cursed from the 
- felttip, 
-my rightthumb fans open a 
- bookpage to prophecy. 
-my rightthumbnail flips ghost coins 
- onto the floor, 
-my hands and torso host a 
- female supremacy. 
-my legs cargoship my home, 
-my boots tapdance with pebbles. 
-my pockets are pillows with 
- treasure, 
-my skull lets memorabilia jumble. 
-my words my heart mints, 
-pass into a lottery for stints. 
-I am gambler and double am 
- choice and hint. 
-
-                              Sunday 
-
-                              Church 
-
            Matrix 
 
-In Genesis, the material snake coaxed the material apple forbidden to be eat by woman and man resulting in material consequences of labor to satisfy hunger and labor to satisfy birth hunger and 
+In Genesis, the material snake 
+coaxed the material apple 
+forbidden to be eat by woman 
+and man resulting in material 
+consequences of labor to 
+satisfy hunger and labor to 
+satisfy birth, and exile from 
+Heaven on Earth. Heaven 
+nonmateiral. Earth material. 
+Thought nonmaterial. Action 
+material. Lord nonmaterial. 
+Devil material. Material 
+crossed over with nonmaterial. 
+That is to understand a matrix 
+as old as time nonmaterial and 
+space material. 
 
                               Sunday 
 
@@ -655,17 +674,46 @@ In Genesis, the material snake coaxed the material apple forbidden to be eat by 
 
            Confession 
 
+I am writer and sojourner to 
+protect and cultivate my double 
+existence with a female spirit 
+under much Earth authority 
+overrun by much Holy and unholy 
+Spirit authority overhung by 
+much Power: your authority Lord. 
+I forage events like scratch 
+tickets. 
+
+Saint Paul formerly Saul the 
+divergent Jewish scholar struck 
+by the Holy Spirit to double 
+Saul into Paul walks with Jesus 
+talks. 
+
+I diverge. I double. I walk. I 
+write to pay authority off. 
+Lucifer walks nearby this 
+Sovereign mission. I need 
+cleanliness, Lord. 
+
                               Sunday 
 
                               Church 
 
            Deal 
 
+By recalling the Lord's past 
+dealings, by smoke offering, I 
+offer these words as my oath to 
+the Lord: 
+
+Be slow, simple, and steadfast. 
+
                               Sunday 
 
                               Norwalk 
  
-           Library 
+           Dunkins 
 
 I leave at the end of Mass noontime 
 freshair. The smoke and words filled 
@@ -673,7 +721,15 @@ the Church. Smoker's choice and poet's
 confessions are roles to become 
 spiritual. 
 
-I make my way across the street to 
+I cross the street of the Church head into Dunkins get the bathroom. My double Target bag is from the Hospital. Three shirts, 
+
+                              Sunday 
+
+                              Norwalk 
+ 
+           Library 
+
+I make my way down the street to 
 the safest place to be anywhere in 
 the world. I fell in love with books 
 like women. They are fine oils and 
@@ -706,6 +762,32 @@ hands. Thoreau shoves me off the
 road away from symbol spinners: what 
 of those same stars in other fields 
 without these hill's problems? 
+
+                              Sunday 
+
+                              Norwalk 
+ 
+           Busstop 
+
+I get to the busstop where East meets 
+West on Belden. A young woman lights 
+off a puff of smoke before dionysian 
+dance. Aside from smoke offerings, 
+animal sacrifice, and confessions: 
+mysterious body movement in secure 
+private places like the mountainside. 
+A skill like a muscle takes up space 
+and attracts events like bees to 
+flowers. 
+
+The bus sign tells me Route 1 snakes 
+northeast to get bitten off by 
+New Haven. 
+
+I stand on steps as a stage, and 
+the props: MArlboro leftover, a 
+leafbed 4Aces, empty vodka, and my 
+Target bag. 
 
                               Sunday 
 
@@ -783,17 +865,23 @@ and nest in jackets.
  
            Leviticus 
 
+We can make modern use 
+
                               Sunday 
 
                               Lecture 
  
            Chronicles 
 
+We can use the first few stories of David 
+
                               Sunday 
 
                               Lecture 
  
            Thanksgiving 
+
+Asaph and his descendants are 
 
                               Sunday 
 
