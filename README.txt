@@ -967,7 +967,7 @@ July 2024: Hosting.
            New Haven 
 
 Boston     Grand  
-^          | 
+^          ^ 
 |          | 
 Union<-----| 
            | 
