@@ -561,7 +561,7 @@ Next to David: Asaph.
 
 My lecture notes are finished. 
 
-Ihead out on the road to rehearse. 
+I head out on the road to rehearse. 
 In the parkinglot a man gifts me 
 ten dollars! 
 
@@ -573,13 +573,17 @@ ten dollars!
 
 I make my way down the street to 
 the safest place to be anywhere in 
-the world. I fell in love with books 
-like women. They are fine oils and 
-rubies on lab shelves these witchcraft 
-potions. It is alchemy of all the arts 
-and maths. Books are minted paper are 
-monies are deposits are treasure 
-chests. 
+the world. 
+
+I fell in love with books like women. 
+They are fine oils and rubies on lab 
+shelves these witchcraft potions. 
+
+It is alchemy of all the arts and 
+maths. 
+
+Books are minted paper are monies 
+are deposits are treasure chests. 
 
                               Sunday 
 
@@ -589,21 +593,24 @@ chests.
 
 Books are my friends wearing minted 
 suits from the gravedigger who 
-tracks all credits and debits and 
-debts and trades and exchange and 
-without scoring chooses what shall 
+tracks all exchange and without 
+scoring to choose what shall 
 passby the gates of Time. 
 
 Nietzsche desperately scribes for 
-the fish of the future. Emily courts 
-marriage in her Love poems for a 
-readerhusband. Ford will not touch 
-the pen but tells of law that cannot 
-be beat because it is natural to 
-hands. Thoreau shoves me off the 
-road away from symbol spinners: what 
-of those same stars in other fields 
-without these hill's problems? 
+the fish of the future. 
+
+Emily courts marriage in her Love 
+poems for a readerhusband. 
+
+Ford will not touch the pen but 
+tells of law that cannot be beat 
+because it is natural to hands. 
+
+Thoreau shoves me off the road away 
+from symbol spinners: what of those 
+same stars in other fields without 
+these hill's problems? 
 
                               Sunday 
 
@@ -617,14 +624,14 @@ reign. The first five chapters of
 Kings show the order of operations 
 to secure bounty under the Lord. 
 
-Visualize five movements: 
-Do a Higher Authority's wishes. 
-Get bounty from Higher Authority. 
-Eliminate enemies that would take 
- bounty. 
-Cut deals with other authority to 
- respect and share bounty. 
-Build something for Higher Authority. 
+Five Movements: 
+  Do a Higher Authority's wishes. 
+  Get bounty from Higher Authority. 
+  Eliminate enemies that would take 
+   bounty. 
+  Cut deals with other authority to 
+   respect and share bounty. 
+  Build something for Higher Authority. 
 
                               Sunday 
 
@@ -632,23 +639,31 @@ Build something for Higher Authority.
 
            Moonship 
 
-Headphones plugged in. I've been 
-paying attention. Red, blue. Hot, 
-cold. Bloods, Crips. Army Go! The 
-Death of Slim Shady after Music to 
-be Murdered By after Kamikaze. I 
-know who it is. It's Kid Cudi! The 
+Headphones plugged in. 
+
+I've been paying attention. 
+
+Red, blue. Hot, cold. Bloods, Crips. 
+
+Army Go! 
+
+The Death of Slim Shady after Music 
+to be Murdered By after Kamikaze. 
+
+I know who it is. It's Kid Cudi! The 
 Adventures Of Moon Man & Slim Shady. 
 Moon Man killed Slim Shady! 
 
-Hip hop is a tragedy, not a joke. I 
-have my top five: 1. Big L 2. Tupac 
+Hip hop is a tragedy, not a joke. 
+
+I have my top five: 1. Big L 2. Tupac 
 3. Biggie 4. Door 5. Eminem stuck 
 in the knockknock problem. 
 
 I have a Moonship. Bounty from the 
-Lord. Build me a Moonroom in 
-New Haven! 
+Lord. 
+
+Build me a Moonroom in New Haven! 
 
                               Sunday 
 
@@ -657,12 +672,15 @@ New Haven!
            Busstop 
 
 I get to the busstop where East meets 
-West on Belden. A young woman lights 
+West on Belden. 
+
+A young woman lights 
 off a puff of smoke before dionysian 
 dance. Aside from smoke offerings, 
 animal sacrifice, and confessions: 
 mysterious body movement in secure 
 private places like the mountainside. 
+
 A skill like a muscle takes up space 
 and attracts events like bees to 
 flowers. 
@@ -685,19 +703,21 @@ Target bag.
 I walk past Mathew Park under the 
 bridge Route 1 away from the hospital. 
 Stamford is nine miles. New York City 
-is many more. Roads like Route 1 are a 
-breeze in my memory of walking from 
-Elizabeth New Jersey into New York 
-City watching how Jersey City rises up 
-to the skyfaces in the hallways of 
-business: I enter on the Washington 
-Bridge, I find White Plains in the 
-Bronx, I exit through Mount Vernon: I 
-eventually get here to Fairfield 
-County. Each supermart on roads like 
-this is a Mom or a Dad. These places 
-I forage mean I can have material 
-happiness. 
+is many more. 
+
+Roads like Route 1 are a breeze in my 
+memory of walking from Elizabeth 
+New Jersey into New York City watching 
+how Jersey City rises up to the 
+skyfaces in the hallways of business: 
+I enter on the Washington Bridge, I 
+find White Plains in the Bronx, I exit 
+through Mount Vernon: I eventually get 
+here to Fairfield County. 
+
+Each supermart on roads like this is a 
+Mom or a Dad. These places I forage mean 
+I can have material happiness. 
 
                               Sunday 
 
@@ -731,17 +751,24 @@ Forage KiD CuDi in the Library by
  
            Chestnut 
 
-Beside the Chestnut Gas station, I pack 
-the woodtip of a Black & Mild with 
-roachweed. Weed gives my headspace and 
+Beside the Chestnut Gas station, I 
+pack the woodtip of a Black & Mild 
+with roachweed. 
+
+Weed gives my headspace and 
 bodyspace ten minutes of stupid and 
-glow. My mind normally churns harsh 
+glow. 
+
+My mind normally churns harsh 
 wordplay like distilling crude oil 
 through pipelines and chambers to 
 reshape into lamp oil and jet fuel. 
 
 I eat my Avocado Spicy Turkey from 
-Wegmans and nightwalk to my treebed. 
+Wegmans. 
+
+I nightwalk to my treebed. 
+
 Fortyfive degree uphill rockland to 
 scissor a tree and my head on stone 
 and nest in my jacket. 
@@ -753,14 +780,16 @@ and nest in my jacket.
            Leviticus 
 
 We can make modern use of Leviticus. 
+
 The first law from the Lord lists 
 the order of operations to perform a 
 bull offering that is accepted by 
-the Lord. This can be done with a 
-discrete order of events. Each time 
-the event series is written out, a 
-simulation performs as a thought 
-experiment. 
+the Lord. 
+
+This can be done with a discrete 
+order of events. Each time the event 
+series is written out, a simulation 
+performs as a thought experiment. 
 
 Visualize Seven Movements: 
   Get a male bulldog. 
@@ -785,17 +814,22 @@ David up until the Lord graces David
 that a house will be made for him by 
 Himself, and the one before last of 
 Hezekiah to validate the first law 
-of Leviticus. Chronicles is many 
-years apart from Moses receiving 
-said first law. We have a series of 
-successful trials at the said start 
-and end of Chronicles. The last 
-storyline of Chronicles has a 
+of Leviticus. 
+
+Chronicles is many years apart from 
+Moses receiving said first law. 
+
+We have a series of successful trials 
+at the said start and end of 
+Chronicles. 
+
+The last storyline of Chronicles has a 
 series of failures from mistrials. 
-A simple comparison between two 
-piles of good and bad show the first 
-law is bountiful when applied well 
-and disastrous to misapply. 
+
+A simple comparison between two piles 
+of good and bad show the first law is 
+bountiful when applied well and 
+disastrous to misapply. 
 
                               Sunday 
 
@@ -827,20 +861,27 @@ you two alone.
 
 I wake up and see the streetweeper. 
 It's at least threethirty in the 
-morning. My tundra legs untangle 
-their spiderhold on my treebed and my 
+morning. 
+
+My tundra legs untangle their 
+spiderhold on my treebed and my 
 butt pivots like tumbling on stage to 
 stand and fish my pockets to find the 
 highway's wood didn't lure any of my 
-valuables loose. I sidehill walk 
-autumn's skeleton leaves blown inland 
-from England. My devilry must go 
-slow and simple and steady to keep the 
-Lord in agreement with my settlement. 
+valuables loose. 
+
+I sidehill walk autumn's skeleton 
+leaves blown inland from England. My 
+devilry must go slow and simple and 
+steady to keep the Lord in agreement 
+with my settlement. 
 
 I kill time in the Park after foraging 
-West and Washington. I grab coffee and 
-breakfast from the kitchen in the Hood. 
+West and Washington. 
+
+I grab coffee and breakfast from the 
+kitchen in the Hood. 
+
 I head back to the Park to eat and 
 smoke the rest of my weed. 
 
