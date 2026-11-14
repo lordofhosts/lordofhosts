@@ -671,15 +671,15 @@ Build me a Moonroom in New Haven!
  
            Busstop 
 
-I get to the busstop where East meets 
-West on Belden. 
+I get to the busstop where East courts 
+West by Belden. 
 
-A young woman lights 
-off a puff of smoke before dionysian 
-dance. Aside from smoke offerings, 
-animal sacrifice, and confessions: 
-mysterious body movement in secure 
-private places like the mountainside. 
+A young woman lights off a puff of 
+smoke before dionysian dance. Aside 
+from smoke offerings, animal sacrifice, 
+and confessions: mysterious body 
+movement in secure private places 
+like the mountainside. 
 
 A skill like a muscle takes up space 
 and attracts events like bees to 
