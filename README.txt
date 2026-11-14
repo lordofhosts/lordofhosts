@@ -31,10 +31,13 @@ manager that turns the lights the
 respect the event the place on. 
 The worker does not clockin until 
 the boss sees the whites of the 
-worker's eyes. Nick bestows upon 
-himself a personal responsibility 
-to find worklife respectable as his 
-audit before giving it his respect. 
+worker's eyes. 
+
+Nick bestows upon himself a 
+personal responsibility to find 
+worklife respectable as his audit 
+before giving it his respect. 
+
 He retreats with his two hands into 
 the artform of poetry against the 
 skeptical chamber of worklife. 
@@ -76,8 +79,9 @@ The entire Northeast from Boston to
 Baltimore the places all play a part 
 in Nick's struggle to live--with his 
 pride that demands to feel to be the 
-presence of a statue to count. He 
-sets his eyes on New Haven. This 
+presence of a statue to count. 
+
+He sets his eyes on New Haven. This 
 thronechair is made of Ivory and 
 Stone. It is the city that wears 
 banners from books to bookies. 
@@ -153,6 +157,7 @@ destiny until the terms are met:
            Clouds 
 
 That seaship cloud began somewhere. 
+
 When breeze brave enough to 
 climbfly like a dragon up to the 
 peak of a mountain tackles the top 
@@ -190,7 +195,8 @@ I sit inside of myself. My chest
 like a carseat for comfort. She 
 is there. A noticeable shaky 
 emotion that rubs off glow on me. 
-She drives me. We Love. 
+She drives me. We Love. We are in 
+a Relationship. 
 
 The park table is organized with 
 three books, smokes, and a couple 
@@ -278,20 +284,27 @@ a couple doors down the barbershop
 
 I make it back to my two bedroom, 
 two bath, twothousand squarefoot 
-place by Little River. Mixcraft, 
-Yeti, Razor, Google Keep, ASUS, 
-and Sound Cloud make a closet a 
-booth. Wonderboom gives me lectures 
-from Nietzsche. Wine from Boston, 
-craft brews from Haverhill, 
-Granddaddy Purp from Haverhill, 
-coffee beans from Haverhill. I'm 
-holding down the fort for family 
-with my money while going to war 
-with obligations over how my time 
-is spent to fit a schedule. It 
-breaks my mind down, it weighs 
-too heavy on my family, I exile 
+place by Little River. 
+
+Mixcraft, Yeti, Razor, Google Keep, 
+ASUS, and Sound Cloud make a closet 
+a booth. 
+
+Wonderboom gives me lectures from 
+Nietzsche. 
+
+Wine from Boston, craft brews from 
+Haverhill, Granddaddy Purp from 
+Haverhill, coffee beans from 
+Boston. 
+
+I'm holding down the fort for 
+family with my money while going 
+to war with obligations over how 
+my time is spent to fit a schedule. 
+
+It breaks my mind down, it weighs 
+too heavy on my family. I exile 
 myself to Nashua New Hampshire. I 
 crashland in the Bridgewater 
 Triangle. 
@@ -304,22 +317,29 @@ Triangle.
 
 In Bridgewater, I read Emily 
 Dickinson. She takes the softheart 
-out of a brave youngman. I hear a 
-keyword a critical matter a 
-tonechange from a witch that farms 
-in the Bridgeater Triangle. I hand 
-over myself like a pot of gold 
-like property ready for use to her, 
-her voice, her positions, her 
-motions, my guesswork at her 
-lifestyle. There is a loveblend a 
-potion a book a poet a witch. I 
-write until ink is cursed any 
+out of a brave youngman. 
+
+I hear a keyword a critical matter 
+a tonechange from a witch that 
+farms in the Bridgeater Triangle. 
+I hand over myself like a pot of 
+gold like property ready for use 
+to her, her voice, her positions, 
+her motions, my guesswork at her 
+lifestyle. 
+
+There is a loveblend a potion a 
+book a poet a witch. 
+
+I write until ink is cursed any 
 strike of a pen mints a page into 
-lottery for prophecy. I group 
-words and things and my body 
-until I become a host an inme 
-notme exists! Her. 
+lottery for prophecy. 
+
+I group words and things and my 
+body until I become a host an 
+inme notme exists! 
+
+Her. 
 
                               Sunday 
 
@@ -331,24 +351,28 @@ After Bridgewater State Hospital, I
 felt the Black Death the redactions 
 the infection on my resume my 
 trackrecord my background my laurels 
-dishonored. My best available move 
-best available skillbuild is 
-witchcraft learned through poetry 
-takes. I'm so at odds when I want to 
+dishonored. 
+
+My best available move best 
+available skillbuild is witchcraft 
+learned through poetry takes. 
+
+I'm so at odds when I want to 
 raise my money modestly to secure 
 private practice: that is Lucifer 
 the slickways of the Devil the pride 
 that wants to hide to secure a 
 kingdom a throne within the 
-personbody. I footwork: Boston, 
-Newport, New Haven, Boston, 
-Springfield, Hartford, Poughkeepsie, 
-Newark, Wilmington, Newark, 
-Springfield, Boston, Providence, 
-New Haven, New York City, 
-Philadelphia, Baltimore, 
-Philadelphia, New York City, 
-Greenwich. 
+personbody. 
+
+I footwork: Boston, Newport, 
+New Haven, Boston, Springfield, 
+Hartford, Poughkeepsie, Newark, 
+Wilmington, Newark, Springfield, 
+Boston, Providence, New Haven, 
+New York City, Philadelphia, 
+Baltimore, Philadelphia, 
+New York City, Greenwich. 
 
                               Sunday 
 
@@ -405,18 +429,21 @@ moneydays.
  
            Church 
 
-I walk up West. Steps become 
-miles. Miles become luggage. 
-Luggage becomes days. Days become 
-who I am. Fit I am to say. 
+I walk up West. 
+
+Steps become miles. Miles become 
+luggage. Luggage becomes days. 
+Days become who I am. Fit I am to 
+say. 
 
 My heart is set on sinkwater from 
 Dunkins. 
 
 Sunday has ten in the morning Roman 
-Catholic Mass. The Bible is 
-alongside my fellows Edgar Allan 
-Poe and Emily Dickinson. 
+Catholic Mass. 
+
+The Bible is alongside my fellows 
+Edgar Allan Poe and Emily Dickinson. 
 
 I cannot create for a skeptic an 
 experience of another samebody 
@@ -505,26 +532,38 @@ head into Dunkins get the
 bathroom. My double Target bag is 
 from the hospital. Three shirts, 
 one jacket, and the Bible because 
-of one indiawoman. The police here 
-don't play street theatre fair. 
-They join the stageact. Music and 
-smoke in the back. Three water 
-bottles are filled with sinkwater. 
+of one indiawoman. 
+
+The police here don't play street 
+theatre fair. They join the 
+stageact. Music and smoke in the 
+back. 
+
+Three water bottles are filled 
+with sinkwater. 
 
 I settle into a table to fish my 
-first ritual from the Lord. Malachi 
-brings hellfire from the Lord to end 
-the Old Testament. Levi was 
-disrespected. Law to Moses 
-disrespected. Chronicles tells tales 
-of kings and levites getting bounty 
-or death from the Lord. The first 
-law to Moses in Leviticus. Next to 
-David: Asaph. 
+first ritual from the Lord. 
 
-My lecture notes are finished. I head 
-out on the road to rehearse. In the 
-parkinglot a man gifts me ten dollars! 
+Malachi brings hellfire from the 
+Lord to end the Old Testament. Levi 
+was disrespected. Law to Moses 
+disrespected. 
+
+Chronicles tells tales of kings 
+and Levites getting bounty or 
+death from the Lord. 
+
+The first law to Moses in 
+Leviticus. 
+
+Next to David: Asaph. 
+
+My lecture notes are finished. 
+
+Ihead out on the road to rehearse. 
+In the parkinglot a man gifts me 
+ten dollars! 
 
                               Sunday 
 
