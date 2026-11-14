@@ -922,7 +922,7 @@ show love.
 
                               Monday 
 
-                              Newark 
+                              Norwalk 
  
            One 
 
@@ -949,7 +949,7 @@ go. I switch bags curbside.
 
                               Monday 
 
-                              Newark 
+                              Norwalk 
  
            Library 
 
