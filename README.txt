@@ -654,7 +654,7 @@ I know who it is. It's Kid Cudi! The
 Adventures Of Moon Man & Slim Shady. 
 Moon Man killed Slim Shady! 
 
-Hip hop is a tragedy, not a joke. 
+Hip Hop is a tragedy, not a joke. 
 
 I have my top five: 1. Big L 2. Tupac 
 3. Biggie 4. Door 5. Eminem stuck 
