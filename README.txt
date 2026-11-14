@@ -1,4 +1,4 @@
-                              Book 
+                              New England 
 
            Publish 
 
@@ -16,7 +16,7 @@ https://github.com/lordofhosts
 
                               November 
 
-                              Book 
+                              New England 
 
            WALNUT 
 
@@ -87,12 +87,37 @@ walking head to the ground.
 
                               Age 33 
 
-                              Song 
+                              New England 
 
-           Geas 
+           Norwalk 
+
+                         Busstop->East--->New Haven
+                         ^ 
+                         |
+               Dunkins<--Library->Church 
+                         ^
+               Hospital  | 
+               ^         | 
+               |         | 
+New York City<-One<------| 
+                         v 
+               Tree<-----West     River 
+                         ^        ^ 
+                         |        | 
+                         v        | 
+               Park<-----Main---->Washington 
+                         ^ 
+                         | 
+                         Hood 
+
+                              2026 
+
+                              Library 
+
+           Moonchild 
 
 The words listened by and spoken or 
-sung by the bard, Nick, rewrite Nick's 
+sung by the poet, Nick, rewrite Nick's 
 destiny until the terms are met: 
 
   Hey, Mr. Rager, Mr. Rager 
@@ -121,65 +146,7 @@ destiny until the terms are met:
   When will the heaven begin? Yeah
   Woah now 
 
-                              ℗ 2010 Universal Motown Records 
-
-                              Song 
-
-           Geas 
-
-The words listened by and spoken or 
-sung by the bard, Nick, rewrite Nick's 
-destiny until the terms are met: 
-
-  Headphones tune in to: 
-    Lil Dicky - $ave Dat Money feat. 
-     Fetty Wap and Rich Homie Quan 
-
-      Across the road I tell Lil Dicky 
-      because the Holy Spirit will send 
-      the message to him somehow: 
-
-        "Soi'ma poet! 
-         I'm stronglegging a tour! 
-         Where the premise is how can I 
-          make the most epic rap epic ever 
-          without dealing in money! 
-
-        "The whiteman only survives many 
-         places with a stiffneck, a danceact, 
-         a lowmoney hustle done hard. I 
-         change the groundfloor to the 
-         stageplay pay attention to me 
-         Walnut better than indoors pick a 
-         room and give me my space I own 
-         anywhere I stand. 
-
-                              ℗ 2015 Commission Records 
-
-                              Location 
-
-           Norwalk 
-
-                         Busstop->East--->New Haven
-                         ^ 
-                         |
-               Dunkins<--Library->Church 
-                         ^
-               Hospital  | 
-               ^         | 
-               |         | 
-New York City<-One<------| 
-                         v 
-               Tree<-----West   River 
-                         ^      ^ 
-                         |      | 
-                         v      | 
-               Park<-----Main-->Washington 
-                         ^ 
-                         | 
-                         Hood 
-
-                              2026 
+                              Saturday 
 
                               Norwalk 
 
@@ -215,7 +182,7 @@ until there is no space.
 
                               Sunday 
 
-                              Norwalk 
+                              Park 
 
            Chest 
 
@@ -232,82 +199,7 @@ to me freely.
 
                               Sunday 
 
-                              Norwalk 
-
-           Park 
-
-Myself: workboots, workpants, gray 
-        sweater, snowhat, Target 
-        shopping bag. 
-
-Park: scattered stone tables, rocky 
-      groundbed, stone pillar, 
-      Washington and Main, New 
-      Haven train to New York City, 
-      lightbulb trees, groundfloor 
-      spotlights. 
-
-The overhanging train tracks in 
-this towncity makes me feel the 
-same construction happened here 
-Norwalk as my Hometown Haverhill 
-where the train runs from Boston. 
-
-                              Sunday 
-
-                              Poet 
-
-           Boston 
-
-save that cigar for a rainy day, 
-smoky underside uptop at Forest Hills. 
-eat a donut drink the coffee, 
-grab wine from the bottomhill. 
-walkthrough subway to Jackson Square, 
-walkdownhill to a raised concrete bed 
- of grass. 
-drink wine and grab hummus from 
- supermart, 
-walkthrough subway to North Station 
- and get passed. 
-eat hummus drink wine and browse 
- North Shore, 
-get off at Haverhill and go to 
- the traintracks bridge weedshop. 
-three drinks and one eighth of 
- Granddaddy Purp and Hip Hop. 
-a couple doors down the barbershop 
- my Caesar cut my Mixtape tour. 
-
-                              Sunday 
-
-                              Poet 
-
-           Haverhill 
-
-I make it back to my two bedroom, 
-two bath, twothousand squarefoot 
-place by Little River. Mixcraft, 
-Yeti, Razor, Google Keep, ASUS, 
-and Sound Cloud make a closet a 
-booth. Wonderboom gives me lectures 
-from Nietzsche. Wine from Boston, 
-craft brews from Haverhill, 
-Granddaddy Purp from Haverhill, 
-coffee beans from Haverhill. I'm 
-holding down the fort for family 
-with my money while going to war 
-with obligations over how my time 
-is spent to fit a schedule. It 
-breaks my mind down, it weighs 
-too heavy on my family, I exile 
-myself to Nashua New Hampshire. I 
-crashland in the Bridgewater 
-Triangle. 
-
-                              Sunday 
-
-                              Poet 
+                              Park 
 
            Mirror 
 
@@ -331,67 +223,84 @@ a sad look wants to dance.
 
                               Sunday 
 
-                              Poet 
+                              Park 
 
-           Scribe 
+           Train 
 
-How I exited into a Masonic 
-lifestyle before adulthood. The 
-room is adorned. Candles are lit 
-the virtues the ideals that burn 
-you, if you make them skills. The 
-Free Masons raise young men 
-before adulthood to lead rooms of 
-people and things. A script a 
-routine a haunting awaits. Such 
-mancy brings virtues and other 
-sacred parts of the room into the 
-lives of the young men and Masons 
-outside of the room. When such 
-mancy is a work, the only two 
-positions taken up by Masons: 
-treasurer and scribe. Become one by 
-collecting and the other by 
-writing. Leave the room. Escape 
-from the obligations Free Masons 
-yet hold me too. 
+Myself: workboots, workpants, gray 
+        sweater, snowhat, Target 
+        shopping bag. 
+
+Park: scattered stone tables, rocky 
+      groundbed, stone pillar, 
+      Washington and Main, New 
+      Haven train to New York City, 
+      lightbulb trees, groundfloor 
+      spotlights. 
+
+The overhanging train tracks in 
+this towncity makes me feel the 
+same construction happened here 
+Norwalk as my Hometown Haverhill 
+where the train runs from Boston. 
 
                               Sunday 
 
-                              Poet 
+                              Boston 
 
-           Rochester 
+           Poet 
 
-I picked college over the Free 
-Masons. I just took Masonic 
-exercises. I became a scribe. 
-Poetry filled my first two years in 
-Rochester New York. Engineering 
-filled my next five years. I solve 
-I write on the global scale. I 
-don't advance by managing people 
-and things. I manage places first 
-the people and things find their 
-positions and motions. I look down 
-on a room a building a block a 
-town a city a state a country and 
-carve answers into reality 
-sculpting sand of Time into ways 
-for all the ants the people to 
-farm about. 
-
-Back home from college, I value a 
-place, the Masonic Lodge of 
-Haverhill, more than a female 
-member of the very same rooms 
-unto assault. I crashland in the 
-Bridgewater Triangle. 
+save that cigar for a rainy day, 
+smoky underside uptop at Forest Hills. 
+eat a donut drink the coffee, 
+grab wine from the bottomhill. 
+walkthrough subway to Jackson Square, 
+walkdownhill to a raised concrete bed 
+ of grass. 
+drink wine and grab hummus from 
+ supermart, 
+walkthrough subway to North Station 
+ and get passed. 
+eat hummus drink wine and browse 
+ North Shore, 
+get off at Haverhill and go to 
+ the traintracks bridge weedshop. 
+three drinks and one eighth of 
+ Granddaddy Purp and Hip Hop. 
+a couple doors down the barbershop 
+ my Caesar cut my Mixtape tour. 
 
                               Sunday 
 
-                              Muse 
+                              Haverhill 
 
-           Her 
+           Elderbrother 
+
+I make it back to my two bedroom, 
+two bath, twothousand squarefoot 
+place by Little River. Mixcraft, 
+Yeti, Razor, Google Keep, ASUS, 
+and Sound Cloud make a closet a 
+booth. Wonderboom gives me lectures 
+from Nietzsche. Wine from Boston, 
+craft brews from Haverhill, 
+Granddaddy Purp from Haverhill, 
+coffee beans from Haverhill. I'm 
+holding down the fort for family 
+with my money while going to war 
+with obligations over how my time 
+is spent to fit a schedule. It 
+breaks my mind down, it weighs 
+too heavy on my family, I exile 
+myself to Nashua New Hampshire. I 
+crashland in the Bridgewater 
+Triangle. 
+
+                              Sunday 
+
+                              Bridgewater 
+
+           Muse 
 
 In Bridgewater, I read Emily 
 Dickinson. She takes the softheart 
@@ -414,50 +323,9 @@ notme exists! Her.
 
                               Sunday 
 
-                              Muse 
+                              Atlantic 
 
-           Attention 
-
-Attention on Her is like meditation: 
-always available for being noticed. 
-I feel a glow when me and my Muse 
-are aware of each other together 
-sharing a position a motion a moment 
-an experience. I was told Quakers 
-are different. They have an inward 
-glow they live with. They call it 
-Heaven. 
-
-                              Sunday 
-
-                              Muse 
-
-           Host 
-
-I rest my hand in my hand. 
-I confess my emotional needs. 
-I pay attention to Her face on my 
- face like a mask. 
-I let Her talk, tap, smile, and 
- move me. 
-I am as close as possible to Her. 
-I rest on my back. 
-I imagine being ropebound into stillness. 
-I rest on my side. 
-I imagine the beach tides closing in 
- on me soaked. 
-I sit. 
-I browse with my eyes to absorb 
- an event penetrates me. 
-I rest my hand in my hand. 
-I walk. 
-I imagine Her black bulldog next to me. 
-
-                              Sunday 
-
-                              Poet 
-
-           Outside 
+           Lucifer 
 
 After Bridgewater State Hospital, I 
 felt the Black Death the redactions 
@@ -472,18 +340,19 @@ private practice: that is Lucifer
 the slickways of the Devil the pride 
 that wants to hide to secure a 
 kingdom a throne within the 
-personbody. I march: Boston, Newport, 
-New Haven, Boston, Springfield, 
-Hartford, Poughkeepsie, Newark, 
-Wilmington, Newark, Springfield, 
-Boston, Providence, New Haven, 
-New York City, Philadelphia, 
-Baltimore, Philadelphia, 
-New York City, Norwalk. 
+personbody. I footwork: Boston, 
+Newport, New Haven, Boston, 
+Springfield, Hartford, Poughkeepsie, 
+Newark, Wilmington, Newark, 
+Springfield, Boston, Providence, 
+New Haven, New York City, 
+Philadelphia, Baltimore, 
+Philadelphia, New York City, 
+Greenwich. 
 
                               Sunday 
 
-                              Poet 
+                              New England 
 
            Walnut 
 
@@ -532,7 +401,7 @@ moneydays.
 
                               Sunday 
 
-                              Norwalk 
+                              West 
  
            Church 
 
@@ -609,106 +478,6 @@ a coffee is rum.
 
                               Church 
 
-           Matrix 
-
-In Genesis, the material snake 
-coaxed the material apple 
-forbidden to be eat by woman 
-and man resulting in material 
-consequences of labor to 
-satisfy hunger and labor to 
-satisfy birth, and exile from 
-Heaven on Earth. Heaven 
-nonmateiral. Earth material. 
-Thought nonmaterial. Action 
-material. Lord nonmaterial. 
-Devil material. Material 
-crossed over with nonmaterial. 
-That is to understand a matrix 
-as old as time nonmaterial and 
-space material. 
-
-                              Sunday 
-
-                              Church 
-
-           Cursed 
-
-my ink is cursed from the 
- felttip, 
-my rightthumb fans open a 
- bookpage to prophecy. 
-my rightthumbnail flips ghost coins 
- onto the floor, 
-my hands and torso host a 
- female supremacy. 
-my legs cargoship my home, 
-my boots tapdance with pebbles. 
-my pockets are pillows with 
- treasure, 
-my skull lets memorabilia jumble. 
-my words my heart mints, 
-pass into a lottery for stints. 
-I am gambler and double am 
- choice and hint. 
-
-                              Sunday 
-
-                              Church 
-
-           Radio 
-
-The radio hypnotizes the only 
-muscle that counts the brain. 
-Broadcasters as the chain of 
-command from footman to anchorman 
-to buildingman to the Lord. The 
-responsibility to thought and 
-action in harmony. 
-
-The first skeptical arrow I shot 
-into the sky was Frequency: 
-electric and magnetic and 
-airborne. I have no ability to 
-station myself in the world of 
-Frequency like a Navy ship. 
-
-There is a ghostly broadcast to 
-my mind a regular topic is a 
-radio channel. 
-
-                              Sunday 
-
-                              Church 
-
-           Confession 
-
-I am writer and sojourner to 
-protect and cultivate my double 
-existence with a female spirit 
-under much Earth authority 
-overrun by much Holy and unholy 
-Spirit authority overhung by 
-much Power: your authority, Lord. 
-I forage events like scratch 
-tickets. 
-
-Saint Paul formerly Saul the 
-divergent Jewish scholar struck 
-by the Holy Spirit to double 
-Saul into Paul walks with Jesus 
-talks. 
-
-I diverge. I double. I walk. I 
-write to pay authority off. 
-Lucifer walks nearby my 
-Sovereignty mission. I need 
-cleanliness, Lord. 
-
-                              Sunday 
-
-                              Church 
-
            Deal 
 
 By recalling the Lord's past 
@@ -720,7 +489,7 @@ Be slow, simple, and steadfast.
 
                               Sunday 
 
-                              Norwalk 
+                              West 
  
            Dunkins 
 
@@ -848,7 +617,7 @@ happiness.
 
                               Sunday 
 
-                              Norwalk 
+                              One 
  
            Loot 
 
@@ -874,7 +643,7 @@ Forage KiD CuDi in the Library by
 
                               Sunday 
 
-                              Norwalk 
+                              One 
  
            Chestnut 
 
@@ -891,11 +660,11 @@ I eat my Avocado Spicy Turkey from
 Wegmans and nightwalk to my treebed. 
 Fortyfive degree uphill rockland to 
 scissor a tree and my head on stone 
-and nest in jackets. 
+and nest in my jacket. 
 
                               Sunday 
 
-                              Lecture 
+                              Tree 
  
            Leviticus 
 
@@ -923,7 +692,7 @@ Visualize Seven Movements:
 
                               Sunday 
 
-                              Lecture 
+                              Tree 
  
            Chronicles 
 
@@ -946,7 +715,7 @@ and disastrous to misapply.
 
                               Sunday 
 
-                              Lecture 
+                              Tree 
  
            Thanksgiving 
 
@@ -992,74 +761,7 @@ an unused hood corner for an hour.
 
                               Monday 
 
-. 
-. 
-. 
-
-Monday 
- Hood 
- Park 
- Dunkins 
- West 
- Hood 
- Park 
- Tree 
-Tuesday 
- 1AM Park 
- Hood 
- Dunkins 
- Center 
- Library 
- Park 
- Hood 
- Park 
- Tree 
-Wednesday 
- Hood 
- One (kit) 
- Chestnut 
- Hood 
- Park 
- Tree 
-Thursday 
- Hood 
- Park 
- Dunkins 
- Library 
- Hood 
- Hood (Jackets) 
- Park 
- Tree 
-Friday 
- 3AM Park 
- Washington 
- Emily Lecture 
- Hood 
- Dunkins 
- Busstop 
- Library 
- Park 
- Washington 
- Hood 
- Tree 
-Saturday 
- 3AM Park 
- Washington 
- Poe Lecture 
- Hood 
- Dunkins 
- Busstop 
- Library 
- Park 
- Washington 
- Hood 
- Tree 
-
-. 
-. 
-. 
-
-                              Location 
+                              New England 
 
            New Haven 
 
@@ -1080,7 +782,3 @@ Yale<------|                |
            Center           Hood 
 
                               2026 
-
-. 
-. 
-. 
