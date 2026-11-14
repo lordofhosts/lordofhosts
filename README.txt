@@ -385,9 +385,9 @@ Jersey, and NYC.
 I cut across Main under the 
 traintracks to forage Washington. 
 I walk away with four roaches and 
-several looseys. A roach is the 
+several deadones. A roach is the 
 halfinch of weed left at the 
-nearend of a joint. A loosey is 
+nearend of a joint. A deadone is 
 an unfinished cigarette. 
 
 There's been a dead pigeon 
@@ -799,10 +799,84 @@ from England. My devilry must go
 slow and simple and steady to keep the 
 Lord in agreement with my settlement. 
 
-Me and my ten dollars find floorweed 
-before buying five loose ones and Natty 
+I kill time in the Park after foraging 
+West and Washington. I grab coffee and 
+breakfast from the kitchen in the Hood. 
+I head back to the Park to eat and 
+smoke the rest of my weed. 
+
+Me and my ten dollars buy from the 
+Hood mart: five loose ones and Natty 
 Daddy and Steel Reserve to hold down 
 an unused hood corner for an hour. 
+
+                              Monday 
+
+                              Hood 
+ 
+           Corner 
+
+My righthand checks my pocket like a 
+mountainman his traps. A $2 silver 
+coin from India. An Irishman's 
+chosen coin to inherit and charm. 
+
+The last lucky money was from my 
+Irishman Dad $9000 life insurance 
+check deadman's pay for an Irish 
+goodbye on baby owld Nick blue eyes 
+transforming green. 
+
+Walden driven walk and lecture puts 
+two feet on the move away from two 
+hands cursing two eyes with life"s 
+words. 
+
+Escaperoom think not do walk 
+outside of the box the room the 
+house Arlington Street Stepdad 
+pissed me and Mama kiss chases me 
+hollaring in the hood I get 
+poached but black people next door 
+show love. 
+
+                              Monday 
+
+                              Newark 
+ 
+           One 
+
+I leave the Hood, drop my Target bag 
+near the Tree, and turn left at 
+Mathew Park. 
+
+I got food and water supplies 
+yesterday on Route 1. I still need 
+one more jacket to blanket my legs 
+at night. I'm grabbing a drawstring 
+bag from Dicks. I need winter socks. 
+I'll go to that Kohl's. There's two 
+food banks to check: the Center and 
+one in the Hood. That kitchen gets 
+me two meals five days a week so I 
+don't need to rely on Route 1. 
+
+I forage up and come back down near 
+the Tree to grab my Target bag and 
+go. I switch bags curbside. 
+
+                              Monday 
+
+                              Newark 
+ 
+           Library 
+
+I head to the Library and outline my 
+ritualwork since Bridgewater: 
+July 2022: Emily Dickinson and a 
+           witch. 
+July 2023: Witch praising. 
+July 2024: Hosting. 
 
                               Monday 
 
