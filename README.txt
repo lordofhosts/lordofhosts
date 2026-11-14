@@ -572,6 +572,20 @@ without these hill's problems?
 
            Kings 
 
+King Solomon secured all his bounty 
+from the Lord since King David's 
+reign. The first five chapters of 
+Kings show the order of operations 
+to secure bounty under the Lord. 
+
+Visualize five movements: 
+Do a Higher Authority's wishes. 
+Get bounty from Higher Authority. 
+Eliminate enemies that would take 
+ bounty. 
+Cut deals with other authority to 
+ respect and share bounty. 
+Build something for Higher Authority. 
 
                               Sunday 
 
