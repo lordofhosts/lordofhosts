@@ -81,8 +81,8 @@ in Nick's struggle to live--with his
 pride that demands to feel to be the 
 presence of a statue to count. 
 
-He sets his eyes on New Haven. This 
-thronechair is made of Ivory and 
+He sets his eyes on New Haven. His 
+Moonroom is made of Ivory and 
 Stone. It is the city that wears 
 banners from books to bookies. 
 He will walk these lands that 
