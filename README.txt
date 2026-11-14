@@ -372,7 +372,7 @@ Wilmington, Newark, Springfield,
 Boston, Providence, New Haven, 
 New York City, Philadelphia, 
 Baltimore, Philadelphia, 
-New York City, Greenwich. 
+New York City, Norwalk. 
 
                               Sunday 
 
