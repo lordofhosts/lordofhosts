@@ -751,7 +751,7 @@ Forage KiD CuDi in the Library by
  
            Chestnut 
 
-Beside the Chestnut Gas station, I 
+Beside the Chestnut gas station, I 
 pack the woodtip of a Black & Mild 
 with roachweed. 
 
@@ -877,12 +877,12 @@ steady to keep the Lord in agreement
 with my settlement. 
 
 I kill time in the Park after foraging 
-West and Washington. 
+West, Main, and Washington. 
 
 I grab coffee and breakfast from the 
 kitchen in the Hood. 
 
-I head back to the Park to eat and 
+I head back to the Park to eat, and 
 smoke the rest of my weed. 
 
 Me and my ten dollars buy from the 
@@ -907,9 +907,9 @@ check deadman's pay for an Irish
 goodbye on baby owld Nick blue eyes 
 transforming green. 
 
-Walden driven walk and lecture puts 
-two feet on the move away from two 
-hands cursing two eyes with life"s 
+Walden is a book that put my two 
+feet on the move away from two 
+hands cursing two eyes with life's 
 words. 
 
 Escaperoom think not do walk 
@@ -935,11 +935,13 @@ yesterday on Route 1. I still need
 one more jacket to blanket my legs 
 at night. I'm grabbing a drawstring 
 bag from Dicks. I need winter socks. 
-I'll go to that Kohl's. There's two 
-food banks to check: the Center and 
-one in the Hood. That kitchen gets 
-me two meals five days a week so I 
-don't need to rely on Route 1. 
+I'll go to Kohl's for that. 
+
+There's two food banks to check: the 
+Center and one in the Hood. That 
+kitchen gets me two meals five days 
+a week so I don't need to rely on 
+Route 1. 
 
 I forage up and come back down near 
 the Tree to grab my Target bag and 
