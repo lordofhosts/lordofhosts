@@ -568,6 +568,37 @@ without these hill's problems?
 
                               Sunday 
 
+                              Library 
+
+           Kings 
+
+
+                              Sunday 
+
+                              Library 
+
+           Moonship 
+
+Headphones plugged in. I've been 
+paying attention. Red, blue. Hot, 
+cold. Bloods, Crips. Army Go! The 
+Death of Slim Shady after Music to 
+be Murdered By after Kamikaze. I 
+know who it is. It's Kid Cudi! The 
+Adventures Of Moon Man & Slim Shady. 
+Moon Man killed Slim Shady! 
+
+Hip hop is a tragedy, not a joke. I 
+have my top five: 1. Big L 2. Tupac 
+3. Biggie 4. Door 5. Eminem stuck 
+in the knockknock problem. 
+
+I have a Moonship. Bounty from the 
+Lord. Build me a Moonroom in 
+New Haven! 
+
+                              Sunday 
+
                               Norwalk 
  
            Busstop 
