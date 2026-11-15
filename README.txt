@@ -536,7 +536,7 @@ head into Dunkins get the
 bathroom. My double Target bag is 
 from the hospital. Three shirts, 
 one jacket, and the Bible because 
-of one indiawoman. 
+of one Indiawoman. 
 
 The police here don't play street 
 theatre fair. They join the 
