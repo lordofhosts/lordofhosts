@@ -1088,7 +1088,142 @@ trap.
  
            Deathparty 
 
-I show up to a party Jim Morrison wasn't invited to. 
+I show up to a party Jim Morrison 
+wasn't invited to. 
+
+Lorca is smoking a cigarette by the 
+door where a newguy falls down the 
+stairs and crashes into the inside 
+of that door. 
+
+Jim kicked the guy. Oddly, the guy 
+felt Jim granted him absent 
+permission to approach the acidstar 
+because silence enjoys the throne 
+atop stairs. 
+
+I go outside to check on Jim. He's 
+laid out on the double yellow, 
+waiting for the cops to show. 
+
+For Jim, 
+I walk up to Lorca. I ask him: 
+where's Saint Gabriel. He tells me 
+to cross the 
+Benjamin Franklin Bridge aloft the 
+Delaware away from Philadelphia 
+into Camden County New Jersey. He 
+tells me there will be signs. 
+
+Philly knows me too well. Their 
+libraries have Irishman gold from 
+me for their Newsvendor. 
+
+I march that bridge past the 
+Bad Blue Boys label. 
+
+I can tell straight ahead is 
+highway, left more residential, so 
+I go right through Rutgers campus 
+southbound along the Delaware. 
+
+Walt Whitman Bridge left. 
+Black Lives Matter Boulevard right. 
+The Hood studies my entrance. 
+SWAT level cop boxvan right. 
+Church right. 
+Bookbox ahead. 
+Loaves of bread aloft the bookbox. 
+There! 
+Fear and Trembling by Kierkegaard. 
+
+A busroute. 
+A village life mixes with the edge of 
+ the Hood. 
+I walk the busroute backward upon 
+ awakening. 
+The highways have me bearing right. 
+Another Wawa. 
+Cherry Hill New Jersey. 
+King Street left. 
+Library on left and Church on right. 
+I lay beside the Church. 
+I awake midnight. 
+A bird chirps. 
+I toss a rock to silence. 
+I awake morning. 
+Dunkins back down King Street. 
+I read. 
+Sin is sin when it cannot be handled 
+ well. Whenever any it is handled 
+ well, then a great person carries 
+ it. Respect for greatness cleanses 
+ whatever it may be. By the mind and 
+ body of a great person, it is no 
+ longer a sin. 
+Abraham is great. Only that cleanses 
+ the judgement: Abraham is a grave 
+ sinner by attempted murder, 
+ motivated by a source that cannot 
+ be cross examined well by anyone 
+ else. Therefore, such a motive, 
+ the Lord, fails to get respect. 
+
+I walk up King Street and turn left 
+ to the Library and find invasion 
+ treads this land. It spells it out 
+ on a sign just to the left of the 
+ Library's frontdoor. The British 
+ didso here in the Revolutionary War. 
+ I see my last name. My neck shoots 
+ my chin up. There! That silence 
+ can be found in the snownight the 
+ same presence felt nearby in the 
+ dark on the way to the bathroom 
+ midnight at home. That silence is 
+ a Sphynx in nonmaterial fields 
+ like Frequency and Gravity. 
+I doomstare. I have an image appear 
+ in my wordbased brain. I feel 
+ nervously slow like anytime danger 
+ shows up to me face to face. 
+A claylike headshape growing the 
+ indentations of eyes, cheeks, and 
+ the crack between lips to become 
+ mouth. 
+It darts away like a few seconds 
+ video clip. 
+
+I talk aloud before invasion's 
+ trophysign staged before an 
+ audience understood as a Poet: 
+ We, viewer and I like no viewer at 
+ all, don't exist when these words 
+ speak to live perhaps as long as 
+ a bug's life before the 
+ interruption of any sound 
+ disrespecting skill's wishes to 
+ serve bill' wishes: 
+   Lorca told me. 
+   Saint Gabriel, 
+   not Jesus, 
+   walks with the homeless. 
+   There is a Ghost. 
+   Not the Holy Spirit 
+   but a river of it: 
+     The Ghost of Harmony. 
+   Feeds events of people and things 
+    to those cursed to walk at least 
+    one place. 
+   This, me, Poet, Engineer demands 
+    the knife to the throat of Apollo 
+    by the sober hands of his brother, 
+    Dionysus, until Apollo speaks the 
+    word "ghost" to pivot harmony. 
+
+I charge back to Philly. 
+
+That train is hopping me to Princeton. 
 
                               Tuesday 
 
