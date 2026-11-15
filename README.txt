@@ -1420,7 +1420,7 @@ to food and water intake only.
            New Haven 
 
 Boston     Grand  
-^          ^ 
+^          | 
 |          | 
 Union<-----| 
            | 
