@@ -1224,6 +1224,174 @@ I talk aloud before invasion's
 I charge back to Philly. 
 
 That train is hopping me to Princeton. 
+ This is war. Baltimore found out it 
+ can't respect a Yankee Doodle Dandy 
+ as my blood runs from my head on 
+ the dock of the Inner Bay. My blood 
+ is the bloodline of revolution: 
+ don't shoot until you see the 
+ whites of their eyes. I don't press 
+ charges. The rain initializes the 
+ definition of a kill before my 
+ stitches walk past that city like 
+ every city wants war not winners 
+ wants losers. I hunt by Yale next. 
+
+Yale will greenrose bendover for my 
+ Irish eyes that strongarm Fordism 
+ best: high value man delivers high 
+ value scripts for free while taking 
+ mere food and drink and spent smoke 
+ as the lowest business costs 
+ systematically like you never want 
+ to play cards with a young Nick 
+ doing the physical Owld Maid. 
+Yale. 
+Yeats. 
+l. 
+lose. 
+trap. 
+T. 
+Model T. 
+Yate. 
+Yeat. 
+Who walks? 
+Yeats. 
+
+Jim will win. 
+There he on stage. 
+The answers. 
+The liquor bottle. 
+The caps that alcoholics leave 
+ behind. 
+The tips: 
+  keep going. 
+  just pick one "For" to pour all 
+   of you into. 
+Jim. 
+Thumbs up holds the bottleneck. 
+The microphone. 
+Drinks up. 
+Back to the crowd. 
+He performs for the writers: 
+  The Doors. 
+Thumbs down. 
+Liquor flows. 
+On keep going. 
+Someone! 
+Some engineer! 
+Pull the damn Andon Cord so the 
+ skill shows up to work the space 
+ back into a workspace like this 
+ image of 27 made it to 33 is an 
+ optimal stop for skill to play 
+ best cards only. Renege and you 
+ live homeless financially 
+ dishonored from moneymaking 
+ practices to acquire values 
+ from outside because too many 
+ think it wise to sideline 
+ themselves as high value. You 
+ each fail as King Lear, 
+ Americans. 
+
+By Ploy and 27th in Baltimore 
+ you never disrespect any sign 
+ nearthere, 
+By Logic the rapper's footwork near 
+ Saint Paul heading towards Key and 
+ Federal Hill as Inner Bay could be 
+ eyesighted by him to his left, 
+By Logic's Vinyl Days Music Video 
+ shutdown after the way I speak in 
+ the Library nearest Saratoga, 
+By the lack of recognition Logic 
+ exists from Baltimore prisontime 
+ talks with me well, 
+Logic the rapper is my 
+ Partner In Crime. 
+I don't just cut deals for a ward 
+ from the Lord, I hustle high values 
+ to get to my Moonroom too. 
+
+Dear Works Cited, 
+  All I see is crossdisciplinary 
+  articles written one way: 
+  technical. Technically, 
+  Critical Thinking sees 
+  Technical Writing as smaller game. 
+  The final phase for engineering 
+  school: leave here and 
+  crossbreed other disciplines 
+  into your mind's engine. See, 
+  touch, and taste my fuel: Poetry. 
+
+Dear Lord, 
+  At the end of Under Pressure, 
+  Logic has the broken down diamond 
+  from gypsys: Snatch. 
+
+  The last Moonroom I had was when 
+  I was seven. Mom holds my baby 
+  brother and sister in the room 
+  next to the frontdoor. She 
+  doesn't hear her name. I know the 
+  rule: wait for Mom's kiss before 
+  school. I know what Mom wants 
+  today: afterschool I stay on the 
+  bus and goo to the YWCA my 
+  firstday. Mom stresses aloud that 
+  the babysitter needs to have been 
+  here already. I hear the bus, She 
+  doesn't hear her name, I leave to 
+  break Mom's rule to do what Mom 
+  wants today. 
+
+  The bus drives past my Moonroom 
+  afterschool. I do the YWCA. Their 
+  van brings me home. Outside on 
+  the concrete walled lawn the 
+  landlord bluntly tells me my Mom 
+  died of a heartattack. She didn't 
+  even survive to the ambulance. 
+  The same ambulance I saw just a 
+  couple hours ago. I look up: 
+  no feelings, gray sky: 
+  Kafka's Silver Sky: 
+  that's a ward! 
+
+  At the end of Under Pressure, 
+  Logic looks up at the rearview to 
+  make eyecontact with me in the 
+  back of the car: 
+    Lucifer smoking a loose one, 
+    see by his neck: fur. 
+
+  Trapped! 
+  That is a Guillotine You're in, 
+   Lord! My Moonroom is a 
+   nonmaterial ward and a material 
+   room single occupancy. 
+
+  Bear witness, Lord, the first 
+  movement by King Solomon freshly 
+  made king is to apply threat to 
+  any enemy seeking his bounty 
+  from the Lord. That's You right 
+  now in way of my bounty, Lord. 
+
+  My Partner In Crime is the rapper, 
+  Logic. He gets diamonds as I get 
+  my Moonroom. That is the second 
+  movement by King Solomon to cut 
+  deals with other authority to 
+  share bounty. 
+
+  Finally, for You Lord, not a house 
+  from King Solomon, his third 
+  movement, but the Ghost of Harmony 
+  from Apollo under threat from 
+  Dionysus. 
 
                               Tuesday 
 
