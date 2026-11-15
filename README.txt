@@ -74,9 +74,9 @@ addict. He chooses relentless
 trekking for two years on roadways 
 like Route 1, Route 9w, Route 202, 
 and Route 40 to name a few longer 
-ones. For hundreds of miles in two 
-years I don't measure, cars drive 
-by thirtyfive, fiftyfive, 
+ones. For hundreds of miles, I 
+don't measure, cars drive by 
+thirtyfive, fiftyfive, 
 seventyfive and I survive with my 
 eyes set on their front windshield 
 when they drive by. 
