@@ -241,7 +241,7 @@ Myself: workboots, workpants, gray
         sweater, snowhat, Target 
         shopping bag. 
 
-Park: scattered stone tables, rocky 
+Park: scattered wooden tables, rocky 
       groundbed, stone pillar, 
       Washington and Main, New 
       Haven train to New York City, 
