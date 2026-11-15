@@ -994,7 +994,7 @@ I'm walking to the riverfront by
 Washington. 
 
 The glow with Her 
-after the mindreader: 
+after the mindreaders: 
 She's pulling back: 
 so they pull back. 
 
