@@ -1343,8 +1343,8 @@ Dear Lord,
   bus and go to the YWCA my 
   firstday. Mom stresses aloud that 
   the babysitter needs to have been 
-  here already. I hear the bus, She 
-  doesn't hear her name, I leave to 
+  here already. I hear the bus. She 
+  doesn't hear her name. I leave to 
   break Mom's rule to do what Mom 
   wants today. 
 
