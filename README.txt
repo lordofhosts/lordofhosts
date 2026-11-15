@@ -1064,7 +1064,7 @@ substances so I can work the first
 sentence of my Simple Spell. 
 
 I grab breakfast and the coffee I love 
-because tthe end you take a sugarshot 
+because at the end I get a sugarshot 
 from all the sugar that bottomfeeds 
 the cup. 
 
