@@ -1030,6 +1030,10 @@ Spell:
            Simple 
 
 Spell: 
+  only food and water, 
+  in my mouth. 
+  no smoke, no mirror, 
+  Her glow without doubt. 
 
                               Monday 
 
@@ -1038,6 +1042,10 @@ Spell:
            Steadfast 
 
 Spell: 
+  sleep with this book, 
+  for its future come true. 
+  take another look, 
+  to see what to do. 
 
                               Monday 
 
@@ -1055,7 +1063,7 @@ substances so I can work the first
 sentence of my Simple Spell. 
 
 I grab breakfast and the coffee I love 
-because t the end you take a sugarshot 
+because tthe end you take a sugarshot 
 from all the sugar that bottomfeeds 
 the cup. 
 
@@ -1080,7 +1088,7 @@ trap.
  
            Deathparty 
 
-
+I show up to a party Jim Morrison wasn't invited to. 
 
                               Tuesday 
 
