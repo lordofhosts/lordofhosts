@@ -1053,6 +1053,7 @@ Spell:
  
            Hood 
 
+I wake up and get my feet on West. 
 I pass the Park into the Hood and to 
 my left is a purple vape that still 
 hits! 
