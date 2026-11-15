@@ -566,6 +566,7 @@ Next to David: Asaph.
 My lecture notes are finished. 
 
 I head out on the road to rehearse. 
+
 In the parkinglot a man gifts me 
 ten dollars! 
 
