@@ -1340,7 +1340,7 @@ Dear Lord,
   rule: wait for Mom's kiss before 
   school. I know what Mom wants 
   today: afterschool I stay on the 
-  bus and goo to the YWCA my 
+  bus and go to the YWCA my 
   firstday. Mom stresses aloud that 
   the babysitter needs to have been 
   here already. I hear the bus, She 
