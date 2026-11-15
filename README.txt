@@ -935,8 +935,9 @@ I leave the Hood, drop my Target bag
 near the Tree, and turn left at 
 Mathew Park. 
 
-I got food and water supplies 
-yesterday on Route 1. I still need 
+I got food supplies yesterday on 
+Route 1. Sinkwater already comes 
+from a few buildings. I still need 
 one more jacket to blanket my legs 
 at night. I'm grabbing a drawstring 
 bag from Dicks. I need winter socks. 
