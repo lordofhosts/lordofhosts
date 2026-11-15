@@ -18,7 +18,8 @@ https://github.com/lordofhosts
 
                               New England 
 
-           WALNUT 
+           GIFT 
+           A BOOK 
 
 Poet, Nick, and first-rate engineer 
 is thrown violently into the 
@@ -73,7 +74,12 @@ addict. He chooses relentless
 trekking for two years on roadways 
 like Route 1, Route 9w, Route 202, 
 and Route 40 to name a few longer 
-ones. 
+ones. For hundreds of miles in two 
+years I don't measure, cars drive 
+by thirtyfive, fiftyfive, 
+seventyfive and I survive with my 
+eyes set on their front windshield 
+when they drive by. 
 
 The entire Northeast from Boston to 
 Baltimore the places all play a part 
@@ -939,13 +945,24 @@ I'll go to Kohl's for that.
 
 There's two food banks to check: the 
 Center and one in the Hood. That 
-kitchen gets me two meals five days 
-a week so I don't need to rely on 
-Route 1. 
+kitchen gets me two meals a day so 
+I don't need to rely on Route 1. 
 
 I forage up and come back down near 
 the Tree to grab my Target bag and 
 go. I switch bags curbside. 
+
+                              Monday 
+
+                              Norwalk 
+ 
+           Center 
+
+I stop by the Center for a foodbag 
+so I can work on my witchcraft notes 
+instead of going through SONO to 
+grab a meal from the kitchen in the 
+Hood. 
 
                               Monday 
 
@@ -959,8 +976,113 @@ July 2022: Emily Dickinson and a
            witch. 
 July 2023: Witch praising. 
 July 2024: Hosting. 
+July 2025: Mental sorcery. 
+July 2026: Mindreaders. 
+
+I note my intense experiences year 
+to year. 
+
+I email myself my writings. 
 
                               Monday 
+
+                              Norwalk 
+ 
+           Washington 
+
+I'm walking to the riverfront by 
+Washington. 
+
+The glow with Her 
+after the mindreader: 
+She's pulling back: 
+so they pull back. 
+
+Sacrifices. I need to minimize my 
+commitments to secure all the 
+glowtime with Her. 
+
+I get to the riverfront and decide 
+my Deal with the Lord could save 
+my glowtime. My low, simple, and 
+steadfast pledges need to earn me 
+the Lord's ward: Moonroom. 
+
+I head back to the Tree. Early 
+nights maximize warmtime asleep. 
+
+                              Monday 
+
+                              Tree 
+ 
+           Slow 
+
+Spell: 
+  I walk, I wait, 
+  I focus, I submit. 
+  for Section Eight, 
+  the Lord's gift. 
+
+                              Monday 
+
+                              Tree 
+ 
+           Simple 
+
+Spell: 
+
+                              Monday 
+
+                              Tree 
+ 
+           Steadfast 
+
+Spell: 
+
+                              Monday 
+
+                              Norwalk 
+ 
+           Hood 
+
+I pass the Park into the Hood and to 
+my left is a purple vape that still 
+hits! 
+
+I decide to take it as a chance to make 
+a choice: today is my goodbye to 
+substances so I can work the first 
+sentence of my Simple Spell. 
+
+I grab breakfast and the coffee I love 
+because t the end you take a sugarshot 
+from all the sugar that bottomfeeds 
+the cup. 
+
+I'm back at the Park puffing Purple. 
+Where's the best way to position my 
+energy? 
+
+Baltimore. Deathparty. I kept death 
+rattling my devil voice that makes 
+dogs bitch silent or barkback well 
+like the crows that follow me up 
+well. 
+
+As Dawn breaks, Lucifer walks into my 
+fingers to pick my rightpocket 
+Sharpie finepoint pen a dollar can't 
+trap. 
+
+                              Tuesday 
+
+                              Park 
+ 
+           Deathparty 
+
+
+
+                              Tuesday 
 
                               New England 
 
