@@ -1396,6 +1396,25 @@ Dear Lord,
 
                               Tuesday 
 
+                              Park 
+
+           Table 
+
+I handover the pen to the table. 
+I feel the thrill still go through 
+it's dance of sadness and 
+adrenaline. This changeover event 
+from nonmaterial thought to 
+material touch the table without 
+desire to write more. It is dreamy. 
+It is trance. It is sobering. 
+
+I stand up to advance my Deathparty: 
+forage until the mouth is reassigned 
+to food and water intake only. 
+
+                              Tuesday 
+
                               New England 
 
            New Haven 
