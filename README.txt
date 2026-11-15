@@ -1004,7 +1004,7 @@ glowtime with Her.
 
 I get to the riverfront and decide 
 my Deal with the Lord could save 
-my glowtime. My low, simple, and 
+my glowtime. My slow, simple, and 
 steadfast pledges need to earn me 
 the Lord's ward: Moonroom. 
 
