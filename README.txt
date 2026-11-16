@@ -1313,8 +1313,8 @@ By Logic's Vinyl Days Music Video
 By the lack of recognition Logic 
  exists from Baltimore prisontime 
  talks with me well, 
-By the four loose ones in Eutaw of 
- fake pearls from Walmart, 
+By the four loose ones in Eutaw from 
+ fake pearls I stole from Walmart, 
 By one smoke for the cannon on 
  Federal Hill pointed at 4, 
 By one smoke outside the gates of 
