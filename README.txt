@@ -693,9 +693,13 @@ Hip Hop is a tragedy, not a joke.
            Rank: Part 2 of 3 
            ----- 
 
-I have my top five: 1. Big L 2. Tupac 
-3. Biggie 4. Door 5. Eminem stuck 
-in the knockknock problem. 
+I have my top five: 
+  1. Big L 
+  2. Tupac 
+  3. Biggie 
+  4. Door 
+  5. Eminem stuck in the 
+     knockknock problem. 
 
            ----- 
            Reward: Part 3 of 3 
@@ -750,7 +754,7 @@ Target bag.
            One 
 
            ----- 
-           Physical: Part 1 of 2 
+           Land: Part 1 of 2 
            ----- 
 
 I walk past Mathew Park under the 
@@ -759,7 +763,7 @@ Stamford is nine miles. New York City
 is many more. 
 
            ----- 
-           Mental: Part 2 of 2 
+           Memory: Part 2 of 2 
            ----- 
 
 Roads like Route 1 are a breeze in my 
@@ -1146,7 +1150,7 @@ Spell:
 
 I wake up and get my feet on West. 
 I pass the Park into the Hood and to 
-my left is a purple vape that still 
+my right is a purple vape that still 
 hits! 
 
 I decide to take it as a chance to make 
@@ -1154,7 +1158,7 @@ a choice: today is my goodbye to
 substances so I can work the first 
 sentence of my Simple Spell. 
 
-I grab breakfast and the coffee I love 
+I grab breakfast, and the coffee I love 
 because at the end I get a sugarshot 
 from all the sugar that bottomfeeds 
 the cup. 
@@ -1375,7 +1379,7 @@ doing the physical Owld Maid.
            ----- 
 
 Jim will win: 
-  There he on stage. 
+  There he is on stage. 
   The answers. 
   The liquor bottle. 
   The caps that alcoholics leave 
