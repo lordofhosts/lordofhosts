@@ -1563,6 +1563,78 @@ uncomfortable.
 
                               Tuesday 
 
+                              West 
+
+           Dunkins 
+
+
+
+                              Tuesday 
+
+                              Busstop 
+
+           Baltimore 
+
+
+
+                              Tuesday 
+
+                              Norwalk 
+
+           Library 
+
+
+
+                              Tuesday 
+
+                              Park 
+
+           Boston 
+
+
+
+                              Tuesday 
+
+                              Norwalk 
+
+           Hood 
+
+
+
+                              Tuesday 
+
+                              Park 
+
+           Middleton 
+
+
+
+                              Tuesday 
+
+                              Tree 
+
+           Tactic1 
+
+
+
+                              Tuesday 
+
+                              Tree 
+
+           Tactic2 
+
+
+
+                              Tuesday 
+
+                              Tree 
+
+           Tactic3 
+
+
+
+                              Tuesday 
+
                               New England 
 
            New Haven 
