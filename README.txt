@@ -1519,7 +1519,7 @@ and digital, I abandon them from my
 eyesight one day. But I pull from my 
 mind what I may recall. I pull from 
 the environment triggers to pull from 
-my mind wjhat I may recall. 
+my mind what I may recall. 
 
 I stand up to advance my Deathparty: 
 forage until the mouth is reassigned 
