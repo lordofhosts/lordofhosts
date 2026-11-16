@@ -1563,11 +1563,37 @@ uncomfortable.
 
                               Tuesday 
 
+                              Washington 
+
+           Views 
+
+
+
+                              Tuesday 
+
                               West 
 
            Dunkins 
 
+I get to the smoker's stone 
+boxstand and spark up. A workman 
+parks his truck and trailerbed on 
+the side of West between me, the 
+curb, and the Church. He walks by. 
+He turnsback out of Dunkins quick. 
+I ask if he can spare a cigarette. 
+He has none. He said he can help 
+out with a coffee. I get my medium 
+hot two creams waiting to melt 
+eight sugarpackets. He throws in 
+an Old Fashion donut! I set up: 
+foodbag, Bible, coffee, sugarpackets, 
+straw, notebook, pen, hands. Two! 
+there's two Old Fashion donuts. 
 
+After the meal I walk over to the 
+Busstop so I can smoke weed without 
+any trouble. 
 
                               Tuesday 
 
@@ -1600,7 +1626,15 @@ the white rapid of the North is in.
 
            Library 
 
+I signin to the Library computer. 
 
+I email myself my Deathparty. 
+
+I draft until my notes on survival 
+tactics are complete. 
+
+I head back out to smoke it up in 
+SONO. 
 
                               Tuesday 
 
@@ -1660,6 +1694,14 @@ the Groups downstairs the
  TV Room for free. 
 clothes and food and pills is money, 
 rooms are stores my pad is laboratory. 
+
+                              Tuesday 
+
+                              Norwalk 
+
+           Park 
+
+
 
                               Tuesday 
 
