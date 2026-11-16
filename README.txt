@@ -21,6 +21,10 @@ https://github.com/lordofhosts
            GIFT 
            A BOOK 
 
+           * * * 
+           Part One of Four 
+           * * * 
+
 Poet, Nick, and first-rate engineer 
 is thrown violently into the 
 confusion of worklife. The clock 
@@ -59,12 +63,20 @@ Nick's engineer head wants to tower
 over places to spot his optimal 
 living conditions. 
 
+           * * * 
+           Part Two of Four 
+           * * * 
+
 One day, his hands make use of 
 aggression his next gates: his 
 indignation paid the gatekeeper well 
 for him to then fall from grace so 
 that he may live his days to 
 reinvent his face place to place. 
+
+           * * * 
+           Part Three of Four 
+           * * * 
 
 His rockbottom: walk the 
 groundfloor. Travel or die. Travel 
@@ -84,6 +96,10 @@ Baltimore the places all play a part
 in Nick's struggle to live--with his 
 pride that demands to feel to be the 
 presence of a statue to count. 
+
+           * * * 
+           Part Four of Four 
+           * * * 
 
 He sets his eyes on New Haven. His 
 Moonroom is made of Ivory and 
@@ -1092,6 +1108,10 @@ trap.
  
            Deathparty 
 
+           * * * 
+           Part One of Six 
+           * * * 
+
 I show up to a party Jim Morrison 
 wasn't invited to. 
 
@@ -1117,6 +1137,10 @@ For Jim,
   aloft the Delaware from Philadelphia 
   into Camden County New Jersey. He 
   tells me there will be signs. 
+
+           * * * 
+           Part Two of Six 
+           * * * 
 
 Philly knows me too well. Their 
 libraries have Irishman gold from 
@@ -1245,6 +1269,10 @@ stitches walk past that city like
 every city wants war not winners 
 wants losers. I hunt by Yale next. 
 
+           * * * 
+           Part Three of Six 
+           * * * 
+
 Yale will greenrose bendover for my 
 Irish eyes that strongarm Fordism 
 best: high value man delivers high 
@@ -1265,6 +1293,10 @@ doing the physical Owld Maid.
   Yeat. 
   Who walks? 
   Yeats. 
+
+           * * * 
+           Part Four of Six 
+           * * * 
 
 Jim will win: 
   There he on stage. 
@@ -1303,6 +1335,10 @@ Jim will win:
    each fail as King Lear, 
    Americans. 
 
+           * * * 
+           Part Five of Six 
+           * * * 
+
 By Ploy and 27th in Baltimore 
  you never disrespect any sign 
  nearthere, 
@@ -1339,6 +1375,10 @@ Logic the rapper is my
 I don't just cut deals for a ward 
  from the Lord, I hustle high values 
  to get to my Moonroom too. 
+
+           * * * 
+           Part Six of Six 
+           * * * 
 
 Dear Lord, 
   At the end of Under Pressure, 
