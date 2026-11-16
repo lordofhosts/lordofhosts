@@ -1522,8 +1522,8 @@ the environment triggers to pull from
 my mind what I may recall. 
 
 I stand up to advance my Deathparty: 
-forage until my mouth is reassigned 
-to food and water intake only. 
+forage until my mouth intake is 
+reassigned to food and water only. 
 
                               Tuesday 
 
