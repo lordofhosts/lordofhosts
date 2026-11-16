@@ -22,7 +22,7 @@ https://github.com/lordofhosts
            A BOOK 
 
            * * * 
-           Part One of Four 
+           GIFT: Part One of Four 
            * * * 
 
 Poet, Nick, and first-rate engineer 
@@ -64,7 +64,7 @@ over places to spot his optimal
 living conditions. 
 
            * * * 
-           Part Two of Four 
+           GIFT: Part Two of Four 
            * * * 
 
 One day, his hands make use of 
@@ -75,7 +75,7 @@ that he may live his days to
 reinvent his face place to place. 
 
            * * * 
-           Part Three of Four 
+           GIFT: Part Three of Four 
            * * * 
 
 His rockbottom: walk the 
@@ -98,7 +98,7 @@ pride that demands to feel to be the
 presence of a statue to count. 
 
            * * * 
-           Part Four of Four 
+           GIFT: Part Four of Four 
            * * * 
 
 He sets his eyes on New Haven. His 
@@ -540,6 +540,10 @@ Be slow, simple, and steadfast.
  
            Dunkins 
 
+           * * * 
+           Dunkins: Part One of Two 
+           * * * 
+
 I leave at the end of Mass 
 noontime freshair. The smoke 
 and words filled the Church. 
@@ -561,6 +565,10 @@ back.
 
 Three water bottles are filled 
 with sinkwater. 
+
+           * * * 
+           Dunkins: Part Two of Two 
+           * * * 
 
 I settle into a table to fish my 
 first ritual from the Lord. 
@@ -660,6 +668,10 @@ Five Movements:
 
            Moonship 
 
+           * * * 
+           Moonship: Part One of Three 
+           * * * 
+
 Headphones plugged in. 
 
 I've been paying attention. 
@@ -677,9 +689,17 @@ Moon Man killed Slim Shady!
 
 Hip Hop is a tragedy, not a joke. 
 
+           * * * 
+           Moonship: Part Two of Three 
+           * * * 
+
 I have my top five: 1. Big L 2. Tupac 
 3. Biggie 4. Door 5. Eminem stuck 
 in the knockknock problem. 
+
+           * * * 
+           Moonship: Part Three of Three 
+           * * * 
 
 I have a Moonship. Bounty from the 
 Lord. 
@@ -692,9 +712,12 @@ Build me a Moonroom in New Haven!
  
            Busstop 
 
+           * * * 
+           Busstop: Part One of Two 
+           * * * 
+
 I get to the busstop where East courts 
 West by Belden. 
-
 A young woman lights off a puff of 
 smoke before dionysian dance. Aside 
 from smoke offerings, animal sacrifice, 
@@ -705,6 +728,10 @@ like the mountainside.
 A skill like a muscle takes up space 
 and attracts events like bees to 
 flowers. 
+
+           * * * 
+           Busstop: Part Two of Two 
+           * * * 
 
 The bus sign tells me Route 1 snakes 
 northeast to get bitten off by 
@@ -721,10 +748,18 @@ Target bag.
  
            One 
 
+           * * * 
+           One: Part One of Two 
+           * * * 
+
 I walk past Mathew Park under the 
 bridge Route 1 away from the hospital. 
 Stamford is nine miles. New York City 
 is many more. 
+
+           * * * 
+           One: Part Two of Two 
+           * * * 
 
 Roads like Route 1 are a breeze in my 
 memory of walking from Elizabeth 
@@ -772,6 +807,10 @@ Forage KiD CuDi in the Library by
  
            Chestnut 
 
+           * * * 
+           Chestnut: Part One of Two 
+           * * * 
+
 Beside the Chestnut gas station, I 
 pack the woodtip of a Black & Mild 
 with roachweed. 
@@ -787,6 +826,10 @@ reshape into lamp oil and jet fuel.
 
 I eat my Avocado Spicy Turkey from 
 Wegmans. 
+
+           * * * 
+           Chestnut: Part Two of Two 
+           * * * 
 
 I nightwalk to my treebed. 
 
@@ -880,6 +923,10 @@ you two alone.
  
            Hood 
 
+           * * * 
+           Hood: Part One of Four 
+           * * * 
+
 I wake up and see the streetweeper. 
 It's at least threethirty in the 
 morning. 
@@ -897,14 +944,26 @@ devilry must go slow and simple and
 steady to keep the Lord in agreement 
 with my settlement. 
 
+           * * * 
+           Hood: Part Two of Four 
+           * * * 
+
 I kill time in the Park after foraging 
 West, Main, and Washington. 
+
+           * * * 
+           Hood: Part Three of Four 
+           * * * 
 
 I grab coffee and breakfast from the 
 kitchen in the Hood. 
 
 I head back to the Park to eat, and 
 smoke the rest of my weed. 
+
+           * * * 
+           Hood: Part Four of Four 
+           * * * 
 
 Me and my ten dollars buy from the 
 Hood mart: five loose ones and Natty 
@@ -917,6 +976,10 @@ an unused hood corner for an hour.
  
            Corner 
 
+           * * * 
+           Corner: Part One of Two 
+           * * * 
+
 My righthand checks my pocket like a 
 mountainman his traps. A $2 silver 
 coin from India. An Irishman's 
@@ -927,6 +990,10 @@ Irishman Dad $9000 life insurance
 check deadman's pay for an Irish 
 goodbye on baby owld Nick blue eyes 
 transforming green. 
+
+           * * * 
+           Corner: Part Two of Two 
+           * * * 
 
 Walden is a book that put my two 
 feet on the move away from two 
@@ -1072,6 +1139,10 @@ Spell:
  
            Hood 
 
+           * * * 
+           Hood: Part One of Two 
+           * * * 
+
 I wake up and get my feet on West. 
 I pass the Park into the Hood and to 
 my left is a purple vape that still 
@@ -1088,8 +1159,12 @@ from all the sugar that bottomfeeds
 the cup. 
 
 I'm back at the Park puffing Purple. 
-Where's the best way to position my 
-energy? 
+Where's the most intense position for 
+my energy? 
+
+           * * * 
+           Hood: Part Two of Two 
+           * * * 
 
 Baltimore. Deathparty. I kept death 
 rattling my devil voice that makes 
@@ -1109,7 +1184,7 @@ trap.
            Deathparty 
 
            * * * 
-           Part One of Six 
+           Deathparty: Part One of Six 
            * * * 
 
 I show up to a party Jim Morrison 
@@ -1139,7 +1214,7 @@ For Jim,
   tells me there will be signs. 
 
            * * * 
-           Part Two of Six 
+           Deathparty: Part Two of Six 
            * * * 
 
 Philly knows me too well. Their 
@@ -1270,7 +1345,7 @@ every city wants war not winners
 wants losers. I hunt by Yale next. 
 
            * * * 
-           Part Three of Six 
+           Deathparty: Part Three of Six 
            * * * 
 
 Yale will greenrose bendover for my 
@@ -1295,7 +1370,7 @@ doing the physical Owld Maid.
   Yeats. 
 
            * * * 
-           Part Four of Six 
+           Deathparty: Part Four of Six 
            * * * 
 
 Jim will win: 
@@ -1336,7 +1411,7 @@ Jim will win:
    Americans. 
 
            * * * 
-           Part Five of Six 
+           Deathparty: Part Five of Six 
            * * * 
 
 By Ploy and 27th in Baltimore 
@@ -1377,7 +1452,7 @@ I don't just cut deals for a ward
  to get to my Moonroom too. 
 
            * * * 
-           Part Six of Six 
+           Deathparty: Part Six of Six 
            * * * 
 
 Dear Lord, 
