@@ -1108,13 +1108,12 @@ laid out on the double yellow,
 waiting for the cops to show. 
 
 For Jim, 
-I walk up to Lorca. I ask him: 
-where's Saint Gabriel. He tells me 
-to cross the 
-Benjamin Franklin Bridge aloft the 
-Delaware away from Philadelphia 
-into Camden County New Jersey. He 
-tells me there will be signs. 
+  I walk up to Lorca. I ask him: 
+  where's Saint Gabriel. He tells me to 
+  cross the Benjamin Franklin Bridge 
+  aloft the Delaware from Philadelphia 
+  into Camden County New Jersey. He 
+  tells me there will be signs. 
 
 Philly knows me too well. Their 
 libraries have Irishman gold from 
@@ -1155,146 +1154,151 @@ I toss a rock to silence.
 I awake morning. 
 Dunkins back down King Street. 
 I read. 
+
 Sin is sin when it cannot be handled 
- well. Whenever any it is handled 
- well, then a great person carries 
- it. Respect for greatness cleanses 
- whatever it may be. By the mind and 
- body of a great person, it is no 
- longer a sin. 
+well. Whenever any it is handled 
+well, then a great person carries 
+it. Respect for greatness cleanses 
+whatever it may be. By the mind and 
+body of a great person, it is no 
+longer a sin. 
+
 Abraham is great. Only that cleanses 
- the judgement: Abraham is a grave 
- sinner by attempted murder, 
- motivated by a source that cannot 
- be cross examined well by anyone 
- else. Therefore, such a motive, 
- the Lord, fails to get respect. 
+the judgement: Abraham is a grave 
+sinner by attempted murder, 
+motivated by a source that cannot 
+be cross examined well by anyone 
+else. Therefore, such a motive, 
+the Lord, fails to get respect. 
 
 I walk up King Street and turn left 
- to the Library and find invasion 
- treads this land. It spells it out 
- on a sign just to the left of the 
- Library's frontdoor. The British 
- didso here in the Revolutionary War. 
- I see my last name. My neck shoots 
- my chin up. There! That silence 
- can be found in the snownight the 
- same presence felt nearby in the 
- dark on the way to the bathroom 
- midnight at home. That silence is 
- a Sphynx in nonmaterial fields 
- like Frequency and Gravity. 
+to the Library and find invasion 
+treads this land. It spells it out 
+on a sign just to the left of the 
+Library's frontdoor. The British 
+didso here in the Revolutionary War. 
+I see my last name. My neck shoots 
+my chin up. There! That silence 
+can be found in the snownight the 
+same presence felt nearby in the 
+dark on the way to the bathroom 
+midnight at home. That silence is 
+a Sphynx in nonmaterial fields 
+like Frequency and Gravity. 
+
 I doomstare. I have an image appear 
- in my wordbased brain. I feel 
- nervously slow like anytime danger 
- shows up to me face to face. 
+in my wordbased brain. I feel 
+nervously slow like anytime danger 
+shows up to me face to face. 
+
 A claylike headshape growing the 
- indentations of eyes, cheeks, and 
- the crack between lips to become 
- mouth. 
+indentations of eyes, cheeks, and 
+the crack between lips to become 
+mouth. 
+
 It darts away like a few seconds 
- video clip. 
+video clip. 
 
 I talk aloud before invasion's 
- trophysign staged before an 
- audience understood as a Poet: 
- We, viewer and I like no viewer at 
- all, don't exist when these words 
- speak to live perhaps as long as 
- a bug's life before the 
- interruption of any sound 
- disrespecting skill's wishes to 
- serve bill' wishes: 
-   Lorca told me. 
-   Saint Gabriel, 
-   not Jesus, 
-   walks with the homeless. 
-   There is a Ghost. 
-   Not the Holy Spirit 
-   but a river of it: 
-     The Ghost of Harmony. 
-   Feeds events of people and things 
-    to those cursed to walk at least 
-    one place. 
-   This, me, Poet, Engineer demands 
-    the knife to the throat of Apollo 
-    by the sober hands of his brother, 
-    Dionysus, until Apollo speaks the 
-    word "ghost" to pivot harmony. 
+trophysign staged before an 
+audience understood as a Poet: 
+We, viewer and I like no viewer at 
+all, don't exist when these words 
+speak to live perhaps as long as 
+a bug's life before the 
+interruption of any sound 
+disrespecting skill's wishes to 
+serve bill' wishes: 
+  Lorca told me. 
+  Saint Gabriel, 
+  not Jesus, 
+  walks with the homeless. 
+  There is a Ghost. 
+  Not the Holy Spirit 
+  but a river of it: 
+    The Ghost of Harmony. 
+  Feeds events of people and things 
+   to those cursed to walk at least 
+   one place. 
+  This, me, Poet, Engineer demands 
+   the knife to the throat of Apollo 
+   by the sober hands of his brother, 
+   Dionysus, until Apollo speaks the 
+   word "ghost" to pivot harmony. 
 
 I charge back to Philly. 
 
 That train is hopping me to Princeton. 
- This is war. Baltimore found out it 
- can't respect a Yankee Doodle Dandy 
- as my blood runs from my head on 
- the dock of the Inner Bay. My blood 
- is the bloodline of revolution: 
- don't shoot until you see the 
- whites of their eyes. I don't press 
- charges. The rain initializes the 
- definition of a kill before my 
- stitches walk past that city like 
- every city wants war not winners 
- wants losers. I hunt by Yale next. 
+This is war. Baltimore found out it 
+can't respect a Yankee Doodle Dandy 
+as my blood runs from my head on 
+the dock of the Inner Bay. My blood 
+is the bloodline of revolution: 
+don't shoot until you see the 
+whites of their eyes. I don't press 
+charges. The rain initializes the 
+definition of a kill before my 
+stitches walk past that city like 
+every city wants war not winners 
+wants losers. I hunt by Yale next. 
 
 Yale will greenrose bendover for my 
- Irish eyes that strongarm Fordism 
- best: high value man delivers high 
- value scripts for free while taking 
- mere food and drink and spent smoke 
- as the lowest business costs 
- systematically like you never want 
- to play cards with a young Nick 
- doing the physical Owld Maid. 
-Yale. 
-Yeats. 
-l. 
-lose. 
-trap. 
-T. 
-Model T. 
-Yate. 
-Yeat. 
-Who walks? 
-Yeats. 
+Irish eyes that strongarm Fordism 
+best: high value man delivers high 
+value scripts for free while taking 
+mere food and drink and spent smoke 
+as the lowest business costs 
+systematically like you never want 
+to play cards with a young Nick 
+doing the physical Owld Maid. 
+  Yale. 
+  Yeats. 
+  l. 
+  lose. 
+  trap. 
+  T. 
+  Model T. 
+  Yate. 
+  Yeat. 
+  Who walks? 
+  Yeats. 
 
-Jim will win. 
-There he on stage. 
-The answers. 
-The liquor bottle. 
-The caps that alcoholics leave 
- behind. 
-The tips: 
-  keep going. 
-  just pick one "For" to pour all 
-   of you into. 
-Jim. 
-Thumbs up holds the bottleneck. 
-The microphone. 
-Drinks up. 
-Back to the crowd. 
-He performs for the writers: 
-  The Doors. 
-Thumbs down. 
-Liquor flows. 
-On keep going. 
-Someone! 
-Some engineer! 
-Pull the damn Andon Cord so the 
- skill shows up to work the space 
- back into a workspace like this 
- image of 27 made it to 33 is an 
- optimal stop for skill to play 
- best cards only. Renege and you 
- live homeless financially 
- dishonored from moneymaking 
- practices to acquire values 
- from outside because too many 
- think it wise to sideline 
- themselves as high value. You 
- each fail as King Lear, 
- Americans. 
+Jim will win: 
+  There he on stage. 
+  The answers. 
+  The liquor bottle. 
+  The caps that alcoholics leave 
+   behind. 
+  The tips: 
+    keep going. 
+    just pick one "For" to pour all 
+     of you into. 
+  Jim. 
+  Thumbs up holds the bottleneck. 
+  The microphone. 
+  Drinks up. 
+  Back to the crowd. 
+  He performs for the writers: 
+    The Doors. 
+  Thumbs down. 
+  Liquor flows. 
+  On keep going. 
+  Someone! 
+  Some engineer! 
+  Pull the damn Andon Cord so the 
+   skill shows up to work the space 
+   back into a workspace like this 
+   image of 27 made it to 33 is an 
+   optimal stop for skill to play 
+   best cards only. Renege and you 
+   live homeless financially 
+   dishonored from moneymaking 
+   practices to acquire values 
+   from outside because too many 
+   think it wise to sideline 
+   themselves as high value. You 
+   each fail as King Lear, 
+   Americans. 
 
 By Ploy and 27th in Baltimore 
  you never disrespect any sign 
@@ -1309,23 +1313,29 @@ By Logic's Vinyl Days Music Video
 By the lack of recognition Logic 
  exists from Baltimore prisontime 
  talks with me well, 
+By the four loose ones in Eutaw of 
+ fake pearls from Walmart, 
+By one smoke for the cannon on 
+ Federal Hill pointed at 4, 
+By one smoke outside the gates of 
+ him and his muse Mr. Poe, 
+By one smoke staged on the dock 
+ nearest the Domino Factory, 
+By one smoke outside the gates of 
+ Fort McHenry, 
+By the U-turn from each car, van, 
+ and truck after those four loose 
+ ones were smoked leaving 
+ Fort McHenry, 
+By incantations of Time's deathwatch 
+ placed beneath the hypnotic hand of 
+ a wall beside Federal Hill, 
 Logic the rapper is my 
- Partner In Crime. 
+ Partner In Crime: he's been looking 
+                   for God. 
 I don't just cut deals for a ward 
  from the Lord, I hustle high values 
  to get to my Moonroom too. 
-
-Dear Works Cited, 
-  All I see is crossdisciplinary 
-  articles written one way: 
-  technical. Technically, 
-  Critical Thinking sees 
-  Technical Writing as smaller game. 
-  The final phase for engineering 
-  school: leave here and 
-  crossbreed other disciplines 
-  into your mind's engine. See, 
-  touch, and taste my fuel: Poetry. 
 
 Dear Lord, 
   At the end of Under Pressure, 
@@ -1356,8 +1366,8 @@ Dear Lord,
   died of a heartattack. She didn't 
   even survive to the ambulance. 
   The same ambulance I saw just a 
-  couple hours ago. I look up: 
-  no feelings, gray sky: 
+  couple hours ago from the bus. I 
+  look up: no feelings, gray sky: 
   Kafka's Silver Sky: 
   that's a ward! 
 
@@ -1369,10 +1379,11 @@ Dear Lord,
     see by his neck: fur. 
 
   Trapped! 
+
   That is a Guillotine You're in, 
-   Lord! My Moonroom is a 
-   nonmaterial ward and a material 
-   room single occupancy. 
+  Lord! My Moonroom is a 
+  nonmaterial ward and a material 
+  room single occupancy. 
 
   Bear witness, Lord, the first 
   movement by King Solomon freshly 
@@ -1394,6 +1405,87 @@ Dear Lord,
   from Apollo under threat from 
   Dionysus. 
 
+  This Trap You're in, Lord is the 
+  Altar, and blood has not been thrown 
+  on the Sides. A homeplate of seven 
+  candles before You. Of which, I 
+  choose one at the expense of six: 
+  comradery: Her and only Her: I am no 
+  one but Hers. The others: love for 
+  family, respect for what is sacred, 
+  courtesy, fidelity, cleanliness, and 
+  patriotism: can all go to the bottom 
+  of the Chesapeake Bay over Your saved 
+  Body. This is not Mr. DeMolay, Lord, 
+  this is Nick. I don't make the same 
+  DeMolay mistakes. I go over the head 
+  of all Inquisition to make a Kings 
+  maneuver on the authority of all 
+  authority: You, Lord. Get my name in 
+  Your Greek, Lord: by my name, Nick, 
+  Plato's Republic has to consider me a 
+  king. 
+
+  Last words to Your first Thought on 
+  kings, Lord: before King Solomon, King 
+  David, before King David, King Saul, 
+  before King Saul, prophet Samuel. You 
+  told Samuel a king will only fail the 
+  people but the people insist for a 
+  king too long so they will get their 
+  king and find out that a king under 
+  You is worse for the people than 
+  simply the people under You. That 
+  means I show You, Lord, favor with my 
+  name when my last ask of my life: my 
+  Moonroom. 
+
+  I read enough of Your Word: Leviticus, 
+  Samuel, Chronicles, then Kings. A king 
+  is just one big deathparty under You, 
+  Lord. 
+
+                              Tuesday 
+
+                              Park 
+
+           Moonship 
+
+Fuck! 
+I need to stop. 
+My Moonship is glitching on me. 
+Okay. 
+Deathbound Lord. 
+Directly involve another man, Logic, 
+ I don't know face to face. 
+Okay. 
+Send this to Logic! 
+Get it to him quick. 
+I don't want to cross that line. 
+There's no black in my DNA. 
+I'm not Hood. 
+That's a whitelie. 
+I'm a Poet. 
+Not a Rapper. 
+Jean Grae a Poet. 
+Big L a Rapper. 
+
+                              Tuesday 
+
+                              Park 
+
+           Deathparty 
+
+Leave, Lord. 
+We know my needs. 
+I'm an exile. 
+
+Asaph sung too much, Lord. That's the 
+gun pointed at Your Head. When You own 
+all animals animal sacrifice is not 
+necessary to get Your Attention. Just 
+a person's words and deeds direct. 
+
                               Tuesday 
 
                               Park 
@@ -1409,9 +1501,65 @@ material touch the table without
 desire to write more. It is dreamy. 
 It is trance. It is sobering. 
 
+I wrote a book before this one, Fleet. 
+I accomplished it while traveling from 
+Maryland to New Jerey. It attracted 
+mindreaders. I've never been radio 
+assaulted. The book was of my Ship, 
+not my Moonship I have under the Lord. 
+The goal was to establish a fleet of 
+ships of people like mine so that we 
+don't engage directly like ships 
+don't touch as in don't talk on the 
+water of Frequency where sound travels 
+far. 
+
+Like all my books previously, physical 
+and digital, I abandon them from my 
+eyesight one day. But I pull from my 
+mind what I may recall. I pull from 
+the environment triggers to pull from 
+my mind wjhat I may recall. 
+
 I stand up to advance my Deathparty: 
 forage until the mouth is reassigned 
 to food and water intake only. 
+
+                              Tuesday 
+
+                              Washington 
+
+           Traintracks 
+
+As I tread the streetdusted brickpath 
+underneath steel traintracks I hear, 
+my gaydar my ears my obsession with 
+words and vocal tones, I hear a gay 
+guy. 
+
+The only issue I have is stuck in the 
+middle of interruption and confusion. 
+
+On my end, interruption, my ears are 
+tuned to tunnelfocus on articulate 
+spoken word. When I want to read, 
+write, or think, I want control of 
+the articulation between my ears, 
+and the tendtotalk gay guys cloud 
+my workspace: smoke in my eye. 
+
+On my peer's end, confusion, 
+grouping articulate person with 
+articulate person bumps me into gay 
+membership I decline. I am serious 
+about membership. It starts on 
+serious words to support important 
+deeds before a relationship a 
+membership a friendship starts 
+strong. 
+
+The issue: in the middle, I am 
+uncomfortable. 
 
                               Tuesday 
 
