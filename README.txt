@@ -948,6 +948,9 @@ Center and one in the Hood. That
 kitchen gets me two meals a day so 
 I don't need to rely on Route 1. 
 
+Wait! Instant coffee. I'm getting 
+that. 
+
 I forage up and come back down near 
 the Tree to grab my Target bag and 
 go. I switch bags curbside. 
