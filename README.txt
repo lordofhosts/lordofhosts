@@ -1575,7 +1575,24 @@ uncomfortable.
 
            Baltimore 
 
-
+wake up by bushy hungry rats, 
+nested one thousand steps from 
+ the dock. 
+smoke and poetry takeover the 
+ waterfront, 
+sewing the airway in mystic knots. 
+a yankee doodles dandy, 
+in the Black gatekeeping city. 
+carbonated water sinks my cup, 
+heard by the catfish and Navy. 
+the dead master of macabre is near, 
+buried away from the Army's Pan. 
+between: a Federal Hill climbs up, 
+to bury the Harbor with cannons. 
+Enoch hides in one of the libraries, 
+thirtythousand files in the recycle bin. 
+a stage is prepared next to computers, 
+the white rapid of the North is in. 
 
                               Tuesday 
 
@@ -1591,7 +1608,25 @@ uncomfortable.
 
            Boston 
 
-
+the whitevan treads the 
+ heartlessland of Mass & Cass, 
+a needle wabble in a walker's 
+ arm. 
+half of hundred attacked sicked 
+ addicts rumage by traffic, 
+Hope House is one block away nested 
+ between a waste facility, bus 
+ terminal, and apartments. 
+their dining room lays out a dozen 
+ tables, full kitchen all you can 
+ eat, and cake, 
+their maindesk swims in each passerby's 
+ hustle harmony. 
+drugs and drinks dance in the 
+ recoverymind's schedule, 
+your best buddy walks with you 
+ across Mass & Cass at noon for 
+ refreshments. 
 
                               Tuesday 
 
@@ -1607,7 +1642,24 @@ uncomfortable.
 
            Middleton 
 
-
+the Lord is found in the 
+ space between, 
+two footsteps from my feet to his 
+ shoes. 
+the eighty block lower the bigguy 
+ Boogie, 
+the Spanish from Haverhill the 
+ Hood from Salem roots. 
+the Church program out the 
+ Detox in Boston, 
+the Ativans I trade the Crowns I 
+ receive. 
+the Chess by Chippy the Wis 
+ under Mark, 
+the Groups downstairs the 
+ TV Room for free. 
+clothes and food and pills is money, 
+rooms are stores my pad is laboratory. 
 
                               Tuesday 
 
