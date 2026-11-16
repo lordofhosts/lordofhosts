@@ -1610,7 +1610,7 @@ the white rapid of the North is in.
 
 the whitevan treads the 
  heartlessland of Mass & Cass, 
-a needle wabble in a walker's 
+a needle wabbles in a walker's 
  arm. 
 half of hundred attacked sicked 
  addicts rumage by traffic, 
