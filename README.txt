@@ -368,22 +368,22 @@ Her.
            Lucifer 
 
 After Bridgewater State Hospital, I 
-felt the Black Death the redactions 
-the infection on my resume my 
-trackrecord my background my laurels 
+felt the Black Death: the redactions: 
+the infection on: my resume, my 
+trackrecord, my background. My laurels 
 dishonored. 
 
-My best available move best 
-available skillbuild is witchcraft 
+My best available move: best 
+available skillbuild: is witchcraft, 
 learned through poetry takes. 
 
-I'm so at odds when I want to 
-raise my money modestly to secure 
-private practice: that is Lucifer 
-the slickways of the Devil the pride 
-that wants to hide to secure a 
-kingdom a throne within the 
-personbody. 
+I'm against great odds whenever I 
+want to raise my money modestly, to 
+secure private practice: that is 
+Lucifer: the slickways of the Devil: 
+the pride that wants to hide, to 
+secure: a kingdom: a throne, within 
+the personbody. 
 
 I footwork: Boston, Newport, 
 New Haven, Boston, Springfield, 
