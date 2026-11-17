@@ -28,12 +28,12 @@ https://github.com/lordofhosts
 Poet, Nick, and first-rate engineer 
 is thrown violently into the 
 confusion of worklife. The clock 
-not to watch but be watched by as 
+not to watch, but be watched by, as 
 it sees the worker does not respect 
 the workplace enough for the work: 
-the event. It is the place the 
-manager that turns the lights the 
-respect the event the place on. 
+the event. It is the place, the 
+manager, that turns the lights, the 
+respect, the event, the place: on. 
 The worker does not clockin until 
 the boss sees the whites of the 
 worker's eyes. 
@@ -46,13 +46,13 @@ before giving it his respect.
 He retreats with his two hands into 
 the artform of poetry against the 
 skeptical chamber of worklife. 
-The hand of art as opposition as 
-refinement as a validation 
-framework for the hand of math. 
+The hand of art as opposition, as 
+refinement, as a validation 
+framework: for the hand of math. 
 
-The pressure of obey rules to get 
-paid money to pay off the bills 
-wrestle with him to reign over 
+The pressure of obey rules: to get 
+paid money: to pay off the bills: 
+wrestle with him: to reign over 
 the use of his time. It is his 
 time regardless of any deals. 
 It is his mind regardless of any 
@@ -68,7 +68,7 @@ living conditions.
            ----- 
 
 One day, his hands make use of 
-aggression his next gates: his 
+aggression: his next gates: his 
 indignation paid the gatekeeper well 
 for him to then fall from grace so 
 that he may live his days to 
@@ -92,10 +92,10 @@ fails to measure, cars drive by
 somehow survives. 
 
 The entire Northeast from Boston to 
-Baltimore the places all play a part 
+Baltimore, the places, all play a part 
 in Nick's struggle to live--with his 
 pride that demands to feel to be the 
-presence of a statue to count. 
+presence of a statue: to count. 
 
            ----- 
            Settle: Part 4 of 4 
@@ -107,7 +107,7 @@ Stone. It is the city that wears
 banners from books to bookies. 
 He will walk these lands that 
 best look back up at him with his 
-walking head to the ground. 
+walking head: to the ground. 
 
                               Age 33 
 
@@ -140,8 +140,8 @@ New York City<-One<------|
 
            Moonchild 
 
-The words listened by and spoken or 
-sung by the poet, Nick, rewrite Nick's 
+The words listened by, and spoken or 
+sung by the Poet: Nick: rewrite Nick's 
 destiny until the terms are met: 
 
   Hey, Mr. Rager, Mr. Rager 
@@ -180,11 +180,11 @@ That seaship cloud began somewhere.
 
 When breeze brave enough to 
 climbfly like a dragon up to the 
-peak of a mountain tackles the top 
+peak of a mountain: tackles the top 
 off onto the otherside: the 
 breeze dies suicide and the 
 mountain gives the breeze new 
-life as a cloud sprouts. 
+life: as a cloud sprouts. 
 
                               Sunday 
 
@@ -195,14 +195,14 @@ life as a cloud sprouts.
 The windways roll between clouds 
 like bowling balls in lanes. I 
 hear the smacking of the wind 
-thud to the eardrum and airdrum 
+thud to the eardrum and airdrum, 
 above. 
 
 Above is the only direction. It 
 is the direction of space. 
 
 Death is below. It is the 
-concrete so many layers dogpile 
+concrete so many layers dogpile, 
 until there is no space. 
 
                               Sunday 
@@ -214,7 +214,7 @@ until there is no space.
 I sit inside of myself. My chest 
 like a carseat for comfort. She 
 is there. A noticeable shaky 
-emotion that rubs off glow on me. 
+emotion that rubs off: glow: on me. 
 She drives me. We Love. We are in 
 a Relationship. 
 
@@ -264,10 +264,10 @@ Park: scattered wooden tables, rocky
       lightbulb trees, groundfloor 
       spotlights. 
 
-The overhanging train tracks in 
+The overhanging traintracks in 
 this towncity makes me feel the 
-same construction happened here 
-Norwalk as my Hometown Haverhill 
+same construction happened here, 
+Norwalk, as my Hometown, Haverhill, 
 where the train runs from Boston. 
 
                               Sunday 
@@ -277,24 +277,24 @@ where the train runs from Boston.
            Poet 
 
 save that cigar for a rainy day, 
-smoky underside uptop at Forest Hills. 
-eat a donut drink the coffee, 
+smoky underside: uptop: at Forest Hills. 
+eat a donut, drink the coffee, 
 grab wine from the bottomhill. 
 walkthrough subway to Jackson Square, 
 walkdownhill to a raised concrete bed 
  of grass. 
 drink wine and grab hummus from 
  supermart, 
-walkthrough subway to North Station 
+walkthrough subway to North Station, 
  and get passed. 
-eat hummus drink wine and browse 
+eat hummus, drink wine, and browse 
  North Shore, 
 get off at Haverhill and go to 
- the traintracks bridge weedshop. 
-three drinks and one eighth of 
- Granddaddy Purp and Hip Hop. 
-a couple doors down the barbershop 
- my Caesar cut my Mixtape tour. 
+ the traintrack's bridge weedshop. 
+three drinks, and one eighth of 
+ Granddaddy Purp, and Hip Hop. 
+a couple doors down the barbershop, 
+ my Caesar cut, my Mixtape tour. 
 
                               Sunday 
 
