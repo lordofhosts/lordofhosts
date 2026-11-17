@@ -107,7 +107,7 @@ Stone. It is the city that wears
 banners from books to bookies. 
 He will walk these lands that 
 best look back up at him with his 
-walking head: to the ground. 
+walkinghead: to the ground. 
 
                               Age 33 
 
