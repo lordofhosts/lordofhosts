@@ -1189,7 +1189,7 @@ trap.
            Deathparty 
 
            ----- 
-           Hurt: Part 1 of 6 
+           Party: Part 1 of 9 
            ----- 
 
 I show up to a party Jim Morrison 
@@ -1219,7 +1219,7 @@ For Jim,
   tells me there will be signs. 
 
            ----- 
-           Harmony: Part 2 of 6 
+           Signs: Part 2 of 9 
            ----- 
 
 Philly knows me too well. Their 
@@ -1277,6 +1277,10 @@ motivated by a source that cannot
 be cross examined well by anyone 
 else. Therefore, such a motive, 
 the Lord, fails to get respect. 
+
+           ----- 
+           Harmony: Part 3 of 9 
+           ----- 
 
 I walk up King Street and turn left 
 to the Library and find invasion 
@@ -1350,7 +1354,7 @@ every city wants war not winners
 wants losers. I hunt by Yale next. 
 
            ----- 
-           Irish: Part 3 of 6 
+           Irish: Part 4 of 9 
            ----- 
 
 Yale will greenrose bendover for my 
@@ -1375,7 +1379,7 @@ doing the physical Owld Maid.
   Yeats. 
 
            ----- 
-           Finale: Part 4 of 6 
+           Finale: Part 5 of 9 
            ----- 
 
 Jim will win: 
@@ -1416,7 +1420,7 @@ Jim will win:
    Americans. 
 
            ----- 
-           Pact: Part 5 of 6 
+           Picture: Part 6 of 9 
            ----- 
 
 By Ploy and 27th in Baltimore 
@@ -1457,7 +1461,7 @@ I don't just cut deals for a ward
  to get to my Moonroom too. 
 
            ----- 
-           Address: Part 6 of 6 
+           Address: Part 7 of 9 
            ----- 
 
 Dear Lord, 
@@ -1502,6 +1506,10 @@ Dear Lord,
     see by his neck: fur. 
 
   Trapped! 
+
+           ----- 
+           Death: Part 8 of 9 
+           ----- 
 
   That is a Guillotine You're in, 
   Lord! My Moonroom is a 
@@ -1575,7 +1583,7 @@ Dear Lord,
            Moonship 
 
 Fuck! 
-I need to stop. 
+I need to land. 
 My Moonship is glitching on me. 
 Okay. 
 Deathbound Lord. 
@@ -1599,15 +1607,92 @@ Big L a Rapper.
 
            Deathparty 
 
-Leave, Lord. 
-We know my needs. 
-I'm an exile. 
+           ----- 
+           System: Part 9 of 9 
+           ----- 
 
-Asaph sung too much, Lord. That's the 
-gun pointed at Your Head. When You own 
-all animals animal sacrifice is not 
-necessary to get Your Attention. Just 
-a person's words and deeds direct. 
+  Leave, Lord. 
+  We know my needs. 
+  I'm an exile. 
+
+  Asaph sung too much, Lord. That's the 
+  gun pointed at Your Head. When You own 
+  all animals animal sacrifice is not 
+  necessary to get Your Attention. Just 
+  a person's words and deeds direct. 
+
+  Now, Lord, apply this System or Better 
+  to Trap and Stop mindreaders so they 
+  leave me alone. As You walk away, 
+  Lord, recall my oath to You: slow, 
+  simple, steadfast. Add another: 
+  singular. All four I dedicate to Her. 
+  As this book continues, I get my 
+  Moonroom. 
+
+                              Tuesday 
+
+                              Park 
+
+           Witchcraft 
+
+Spell: 
+  make my chest, 
+  feel Her glow. 
+  when I'm at rest, 
+  She's the sole focus I know. 
+  
+                              Tuesday 
+
+                              Park 
+
+           Tragedy 
+
+I have eyes. 
+you have eyes. 
+can we stare at eachother? 
+no mindreaders no. 
+
+I have rules. 
+you have rules. 
+can we follow eachother's rules? 
+no authority no. 
+
+you work. 
+I outwork you. 
+don't compare. 
+I lap you. 
+
+wishes in your head. 
+Fates break you 
+by the wings on you ankles, 
+and drag you to. 
+
+you complain. 
+you fuck around. 
+you complain. 
+you do me: 
+  Nightmares, 
+  Daydreams, 
+  roadways your never see. 
+Lucifer is hungry. 
+mindreaders haunting. 
+Ghost of Harmony, 
+or die. 
+
+EOS: 
+that's Her: 
+Mother of Dawn: 
+Mother of Where: 
+Hell, oh. 
+
+Too many cut deals without knowing 
+ The Devil's Mill by Samuel Love. 
+my name is Nick. 
+
+mindreaders, 
+treat tragedy as entertainment 
+and comedy dies. 
 
                               Tuesday 
 
@@ -1647,6 +1732,42 @@ my mind what I may recall.
 I stand up to advance my Deathparty: 
 forage until my mouth intake is 
 reassigned to food and water only. 
+
+                              Tuesday 
+
+                              Washington 
+
+           Traintracks 
+
+As I tread the streetdusted brickpath 
+underneath steel traintracks I hear, 
+my gaydar my ears my obsession with 
+words and vocal tones, I hear a gay 
+guy. 
+
+The only issue I have is stuck in the 
+middle of interruption and confusion. 
+
+On my end, interruption, my ears are 
+tuned to tunnelfocus on articulate 
+spoken word. When I want to read, 
+write, or think, I want control of 
+the articulation between my ears, 
+and the tendtotalk gay guys cloud 
+my workspace: smoke in my eye. 
+
+On my peer's end, confusion, 
+grouping articulate person with 
+articulate person bumps me into gay 
+membership I decline. I am serious 
+about membership. It starts on 
+serious words to support important 
+deeds before a relationship a 
+membership a friendship starts 
+strong. 
+
+The issue: in the middle, I am 
+uncomfortable. 
 
                               Tuesday 
 
