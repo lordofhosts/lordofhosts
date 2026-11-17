@@ -1316,7 +1316,7 @@ speak: to live perhaps as long as
 a bug's life before the 
 interruption of any sound: 
 disrespecting skill's wishes to 
-serve bill' wishes: 
+serve bill's wishes: 
   Lorca told me. 
   Saint Gabriel, 
   not Jesus, 
