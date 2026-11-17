@@ -935,13 +935,13 @@ It's at least threethirty in the
 morning. 
 
 My tundra legs untangle their 
-spiderhold on my treebed and my 
-butt pivots like tumbling on stage to 
-stand and fish my pockets to find the 
-highway's wood didn't lure any of my 
-valuables loose. 
+spiderhold on my treebed, and my 
+butt pivots like tumbling on stage: to 
+stand: and fish my pockets: to find: 
+the highway's wood: didn't lure any of 
+my valuables loose. 
 
-I sidehill walk autumn's skeleton 
+I sidehill walk: autumn's skeleton 
 leaves blown inland from England. My 
 devilry must go slow and simple and 
 steady to keep the Lord in agreement 
@@ -969,8 +969,8 @@ smoke the rest of my weed.
            ----- 
 
 Me and my ten dollars buy from the 
-Hood mart: five loose ones and Natty 
-Daddy and Steel Reserve to hold down 
+Hood mart: five loose ones, and Natty 
+Daddy, and Steel Reserve to: hold down 
 an unused hood corner for an hour. 
 
                               Monday 
@@ -989,9 +989,9 @@ coin from India. An Irishman's
 chosen coin to inherit and charm. 
 
 The last lucky money was from my 
-Irishman Dad $9000 life insurance 
-check deadman's pay for an Irish 
-goodbye on baby owld Nick blue eyes 
+Irishman Dad: $9000 life insurance 
+check: deadman's pay for: his Irish 
+goodbye on: baby: owld Nick: blue eyes 
 transforming green. 
 
            ----- 
@@ -999,16 +999,16 @@ transforming green.
            ----- 
 
 Walden is a book that put my two 
-feet on the move away from two 
-hands cursing two eyes with life's 
-words. 
+feet on the move away from my two 
+hands cursing my two eyes with: 
+life's words. 
 
-Escaperoom think not do walk 
-outside of the box the room the 
-house Arlington Street Stepdad 
-pissed me and Mama kiss chases me 
-hollaring in the hood I get 
-poached but black people next door 
+Escaperoom: think not: do walk: 
+outside of the box, the room, the 
+house: Arlington Street: Stepdad 
+pissed me and Mama kiss: chases me, 
+hollaring in the hood: I get 
+poached, but black people next door 
 show love. 
 
                               Monday 
