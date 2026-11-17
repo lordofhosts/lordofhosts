@@ -1148,7 +1148,7 @@ Spell:
 
 I wake up and get my feet on West. 
 I pass the Park into the Hood and to 
-my right is a purple vape that still 
+my right: is a purple vape that still 
 hits! 
 
 I decide to take it as a chance to make 
@@ -1157,11 +1157,11 @@ substances so I can work the first
 sentence of my Simple Spell. 
 
 I grab breakfast, and the coffee I love 
-because at the end I get a sugarshot 
+because at the end: I get a sugarshot 
 from all the sugar that bottomfeeds 
 the cup. 
 
-I'm back at the Park puffing Purple. 
+I'm back at the Park, puffing Purple. 
 Where's the most intense position for 
 my energy? 
 
@@ -1170,15 +1170,15 @@ my energy?
            ----- 
 
 Baltimore. Deathparty. I kept death 
-rattling my devil voice that makes 
-dogs bitch silent or barkback well 
+rattling: my devil voice: that makes 
+dogs bitch silent or barkback well, 
 like the crows that follow me up 
 well. 
 
 As Dawn breaks, Lucifer walks into my 
-fingers to pick my rightpocket 
-Sharpie finepoint pen a dollar can't 
-trap. 
+fingers to pick my rightpocket: 
+Sharpie finepoint pen that a dollar 
+can't trap. 
 
                               Tuesday 
 
@@ -1194,7 +1194,7 @@ I show up to a party Jim Morrison
 wasn't invited to. 
 
 Lorca is smoking a cigarette by the 
-door where a newguy falls down the 
+door, where a newguy falls down the 
 stairs and crashes into the inside 
 of that door. 
 
@@ -1221,24 +1221,24 @@ For Jim,
            ----- 
 
 Philly knows me too well. Their 
-libraries have Irishman gold from 
-me for their Newsvendor. 
+libraries have Irishman gold: from 
+me for: their Newsvendor. 
 
 I march that bridge past the 
 Bad Blue Boys label. 
 
 I can tell straight ahead is 
 highway, left more residential, so 
-I go right through Rutgers campus 
+I go right through Rutgers campus: 
 southbound along the Delaware. 
 
-Walt Whitman Bridge left. 
-Black Lives Matter Boulevard right. 
-The Hood studies my entrance. 
-SWAT level cop boxvan right. 
-Church right. 
-Bookbox ahead. 
-Loaves of bread aloft the bookbox. 
+Walt Whitman Bridge: left. 
+Black Lives Matter Boulevard: right. 
+The Hood: studies my entrance. 
+SWAT level cop boxvan: right. 
+Church: right. 
+Bookbox: ahead. 
+Loaves of bread: aloft the bookbox. 
 There! 
 Fear and Trembling by Kierkegaard. 
 
@@ -1250,49 +1250,48 @@ I walk the busroute backward upon
 The highways have me bearing right. 
 Another Wawa. 
 Cherry Hill New Jersey. 
-King Street left. 
-Library on left and Church on right. 
+King Street: left. 
+Library on left, and Church on right. 
 I lay beside the Church. 
 I awake midnight. 
 A bird chirps. 
 I toss a rock to silence. 
 I awake morning. 
-Dunkins back down King Street. 
-I read. 
+Dunkins: back down King Street. 
+I read: 
+  Sin is sin when it cannot be handled 
+  well. Whenever any it is handled 
+  well, then a great person carries 
+  it. Respect for greatness cleanses 
+  whatever it may be. By the mind and 
+  body of a great person: it: is no 
+  longer a sin. 
 
-Sin is sin when it cannot be handled 
-well. Whenever any it is handled 
-well, then a great person carries 
-it. Respect for greatness cleanses 
-whatever it may be. By the mind and 
-body of a great person, it is no 
-longer a sin. 
-
-Abraham is great. Only that cleanses 
-the judgement: Abraham is a grave 
-sinner by attempted murder, 
-motivated by a source that cannot 
-be cross examined well by anyone 
-else. Therefore, such a motive, 
-the Lord, fails to get respect. 
+  Abraham is great. Only that cleanses 
+  the judgement: Abraham is a grave 
+  sinner by attempted murder, 
+  motivated by a source that cannot 
+  be cross examined well by anyone 
+  else. Therefore, such a motive, 
+  the Lord, fails to get respect. 
 
            ----- 
            Harmony: Part 3 of 9 
            ----- 
 
 I walk up King Street and turn left 
-to the Library and find invasion 
+into the Library and find invasion 
 treads this land. It spells it out 
 on a sign just to the left of the 
 Library's frontdoor. The British 
 didso here in the Revolutionary War. 
 I see my last name. My neck shoots 
-my chin up. There! That silence 
-can be found in the snownight the 
+my chin up. There! That silence: 
+can be found in the snownight: the 
 same presence felt nearby in the 
-dark on the way to the bathroom 
+dark, on the way to the bathroom 
 midnight at home. That silence is 
-a Sphynx in nonmaterial fields 
+a Sphynx in nonmaterial fields: 
 like Frequency and Gravity. 
 
 I doomstare. I have an image appear 
@@ -1309,13 +1308,13 @@ It darts away like a few seconds
 video clip. 
 
 I talk aloud before invasion's 
-trophysign staged before an 
-audience understood as a Poet: 
+trophysign: staged before an 
+audience: understood as a Poet: 
 We, viewer and I like no viewer at 
 all, don't exist when these words 
-speak to live perhaps as long as 
+speak: to live perhaps as long as 
 a bug's life before the 
-interruption of any sound 
+interruption of any sound: 
 disrespecting skill's wishes to 
 serve bill' wishes: 
   Lorca told me. 
@@ -1329,7 +1328,7 @@ serve bill' wishes:
   Feeds events of people and things 
    to those cursed to walk at least 
    one place. 
-  This, me, Poet, Engineer demands 
+  This, me, Poet, Engineer demands: 
    the knife to the throat of Apollo 
    by the sober hands of his brother, 
    Dionysus, until Apollo speaks the 
@@ -1341,27 +1340,27 @@ That train is hopping me to Princeton.
 This is war. Baltimore found out it 
 can't respect a Yankee Doodle Dandy 
 as my blood runs from my head on 
-the dock of the Inner Bay. My blood 
+the dock of their Inner Bay. My blood 
 is the bloodline of revolution: 
 don't shoot until you see the 
 whites of their eyes. I don't press 
-charges. The rain initializes the 
+charges. The rain initializes that 
 definition of a kill before my 
-stitches walk past that city like 
-every city wants war not winners 
+stitches walk past that city: like 
+every city wants war: not winners: 
 wants losers. I hunt by Yale next. 
 
            ----- 
            Irish: Part 4 of 9 
            ----- 
 
-Yale will greenrose bendover for my 
-Irish eyes that strongarm Fordism 
+Yale will greenrose bendover for: my 
+Irish eyes: that strongarm Fordism 
 best: high value man delivers high 
 value scripts for free while taking 
 mere food and drink and spent smoke 
 as the lowest business costs 
-systematically like you never want 
+systematically, like you never want 
 to play cards with a young Nick 
 doing the physical Owld Maid. 
   Yale. 
@@ -1382,37 +1381,37 @@ doing the physical Owld Maid.
 
 Jim will win: 
   There he is on stage. 
-  The answers. 
-  The liquor bottle. 
-  The caps that alcoholics leave 
-   behind. 
-  The tips: 
-    keep going. 
-    just pick one "For" to pour all 
-     of you into. 
+  The answers: 
+    The liquor bottle. 
+    The caps that alcoholics leave 
+     behind. 
+    The tips: 
+      keep going. 
+      just pick one "For" to pour all 
+       of you into. 
   Jim. 
-  Thumbs up holds the bottleneck. 
-  The microphone. 
-  Drinks up. 
+  Thumbs up holds the bottleneck: 
+    The microphone. 
+    Drinks up. 
   Back to the crowd. 
   He performs for the writers: 
     The Doors. 
-  Thumbs down. 
-  Liquor flows. 
-  On keep going. 
+  Thumbs down: 
+    Liquor flows. 
+    On keep going. 
   Someone! 
   Some engineer! 
   Pull the damn Andon Cord so the 
-   skill shows up to work the space 
-   back into a workspace like this 
+   skill shows up to work the space: 
+   back into a workspace, like this 
    image of 27 made it to 33 is an 
-   optimal stop for skill to play 
+   optimal stop for: skill to play 
    best cards only. Renege and you 
-   live homeless financially 
+   live homeless: financially 
    dishonored from moneymaking 
-   practices to acquire values 
+   practices to: acquire values 
    from outside because too many 
-   think it wise to sideline 
+   think it wise to: sideline 
    themselves as high value. You 
    each fail as King Lear, 
    Americans. 
@@ -1421,42 +1420,42 @@ Jim will win:
            Picture: Part 6 of 9 
            ----- 
 
-By Ploy and 27th in Baltimore 
+By Ploy and 27th in Baltimore: 
  you never disrespect any sign 
  nearthere, 
-By Logic the rapper's footwork near 
- Saint Paul heading towards Key and 
+By Logic the rapper's footwork down 
+ Saint Paul: heading towards Key and 
  Federal Hill as Inner Bay could be 
- eyesighted by him to his left, 
+ eyesighted by him: to his left, 
 By Logic's Vinyl Days Music Video 
- shutdown after the way I speak in 
+ shutdown: after the way I speak in 
  the Library nearest Saratoga, 
 By the lack of recognition Logic 
- exists from Baltimore prisontime 
+ exists: from Baltimore prisontime: 
  talks with me well, 
-By the four loose ones in Eutaw from 
+By the four loose ones from Eutaw: from 
  fake pearls I stole from Walmart, 
 By one smoke for the cannon on 
  Federal Hill pointed at 4, 
 By one smoke outside the gates of 
- him and his muse Mr. Poe, 
-By one smoke staged on the dock 
+ him and his muse: Mr. Poe, 
+By one smoke staged on the dock: 
  nearest the Domino Factory, 
 By one smoke outside the gates of 
  Fort McHenry, 
 By the U-turn from each car, van, 
  and truck after those four loose 
- ones were smoked leaving 
+ ones were smoked: leaving 
  Fort McHenry, 
-By incantations of Time's deathwatch 
- placed beneath the hypnotic hand of 
+By incantations of Time's deathwatch: 
+ placed beneath the hypnotic hand of: 
  a wall beside Federal Hill, 
 Logic the rapper is my 
  Partner In Crime: he's been looking 
                    for God. 
 I don't just cut deals for a ward 
  from the Lord, I hustle high values 
- to get to my Moonroom too. 
+ to get my Moonroom too. 
 
            ----- 
            Address: Part 7 of 9 
@@ -1475,18 +1474,18 @@ Dear Lord,
   rule: wait for Mom's kiss before 
   school. I know what Mom wants 
   today: afterschool I stay on the 
-  bus and go to the YWCA my 
+  bus and go to the YWCA, my 
   firstday. Mom stresses aloud that 
   the babysitter needs to have been 
   here already. I hear the bus. She 
-  doesn't hear her name. I leave to 
-  break Mom's rule to do what Mom 
+  doesn't hear her name. I leave: to 
+  break Mom's rule: to do what Mom 
   wants today. 
 
   The bus drives past my Moonroom 
   afterschool. I do the YWCA. Their 
   van brings me home. Outside on 
-  the concrete walled lawn the 
+  the concrete walled lawn: the 
   landlord bluntly tells me my Mom 
   died of a heartattack. She didn't 
   even survive to the ambulance. 
@@ -1498,7 +1497,7 @@ Dear Lord,
 
   At the end of Under Pressure, 
   Logic looks up at the rearview to 
-  make eyecontact with me in the 
+  make eyecontact with me: in the 
   back of the car: 
     Lucifer smoking a loose one, 
     see by his neck: fur. 
@@ -1511,30 +1510,30 @@ Dear Lord,
 
   That is a Guillotine You're in, 
   Lord! My Moonroom is a 
-  nonmaterial ward and a material 
-  room single occupancy. 
+  nonmaterial ward, and a material 
+  room: double occupancy: me and Her.  
 
   Bear witness, Lord, the first 
   movement by King Solomon freshly 
-  made king is to apply threat to 
+  made king is to: apply threat to 
   any enemy seeking his bounty 
-  from the Lord. That's You right 
-  now in way of my bounty, Lord. 
+  from the Lord. That's You, right 
+  now, in way of my bounty, Lord. 
 
   My Partner In Crime is the rapper, 
   Logic. He gets diamonds as I get 
   my Moonroom. That is the second 
-  movement by King Solomon to cut 
+  movement by King Solomon: to cut 
   deals with other authority to 
   share bounty. 
 
   Finally, for You Lord, not a house 
   from King Solomon, his third 
-  movement, but the Ghost of Harmony 
+  movement, instead: the Ghost of Harmony: 
   from Apollo under threat from 
   Dionysus. 
 
-  This Trap You're in, Lord is the 
+  This Trap You're in, Lord, is the 
   Altar, and blood has not been thrown 
   on the Sides. A homeplate of seven 
   candles before You. Of which, I 
@@ -1542,34 +1541,33 @@ Dear Lord,
   comradery: Her and only Her: I am no 
   one but Hers. The others: love for 
   family, respect for what is sacred, 
-  courtesy, fidelity, cleanliness, and 
+  courtesy, faithfulness, cleanliness, and 
   patriotism: can all go to the bottom 
-  of the Chesapeake Bay over Your saved 
+  of the Chesapeake Bay: over Your saved 
   Body. This is not Mr. DeMolay, Lord, 
   this is Nick. I don't make the same 
   DeMolay mistakes. I go over the head 
-  of all Inquisition to make a Kings 
-  maneuver on the authority of all 
+  of all Inquisition: to make a Kings 
+  maneuver: on the authority of all 
   authority: You, Lord. Get my name in 
   Your Greek, Lord: by my name, Nick, 
-  Plato's Republic has to consider me a 
-  king. 
+  Plato's Republic has to name me: king. 
 
   Last words to Your first Thought on 
   kings, Lord: before King Solomon, King 
   David, before King David, King Saul, 
   before King Saul, prophet Samuel. You 
   told Samuel a king will only fail the 
-  people but the people insist for a 
+  people, but the people insist for a 
   king too long so they will get their 
-  king and find out that a king under 
+  king, and find out that: a king under 
   You is worse for the people than 
   simply the people under You. That 
   means I show You, Lord, favor with my 
   name when my last ask of my life: my 
   Moonroom. 
 
-  I read enough of Your Word: Leviticus, 
+  I read cupfulls of Your Word: Leviticus, 
   Samuel, Chronicles, then Kings. A king 
   is just one big deathparty under You, 
   Lord. 
@@ -1615,12 +1613,12 @@ Big L a Rapper.
 
   Asaph sung too much, Lord. That's the 
   gun pointed at Your Head. When You own 
-  all animals animal sacrifice is not 
+  all animals: animal sacrifice is not 
   necessary to get Your Attention. Just 
-  a person's words and deeds direct. 
+  a person's words and deeds: direct. 
 
   Now, Lord, apply this System or Better 
-  to Trap and Stop mindreaders so they 
+  to: Trap and Stop: mindreaders: so they 
   leave me alone. As You walk away, 
   Lord, recall my oath to You: slow, 
   simple, steadfast. Add another: 
@@ -1649,12 +1647,12 @@ Spell:
 I have eyes. 
 you have eyes. 
 can we stare at eachother? 
-no mindreaders no. 
+no mindreaders: no. 
 
 I have rules. 
 you have rules. 
 can we follow eachother's rules? 
-no authority no. 
+no authority: no. 
 
 you work. 
 I outwork you. 
@@ -1663,33 +1661,33 @@ I lap you.
 
 wishes in your head. 
 Fates break you 
-by the wings on you ankles, 
+by the wings on your ankles, 
 and drag you to. 
 
-you complain. 
-you fuck around. 
-you complain. 
+you complain, 
+you fuck around, 
+you complain: 
 you do me: 
   Nightmares, 
   Daydreams, 
   roadways your never see. 
-Lucifer is hungry. 
-mindreaders haunting. 
-Ghost of Harmony, 
-or die. 
+Lucifer is hungry, 
+mindreaders haunting: 
+  Ghost of Harmony, 
+  or die. 
 
 EOS: 
-that's Her: 
-Mother of Dawn: 
-Mother of Where: 
-Hell, oh. 
+  that's Her: 
+    Mother of Dawn: 
+      Mother of Where: 
+        Hell, oh. 
 
-Too many cut deals without knowing 
+Too many cut deals without knowing: 
  The Devil's Mill by Samuel Love. 
 my name is Nick. 
 
 mindreaders, 
-treat tragedy as entertainment 
+treat tragedy as entertainment: 
 and comedy dies. 
 
                               Tuesday 
@@ -1703,33 +1701,33 @@ I feel the thrill still go through
 it's dance of sadness and 
 adrenaline. This changeover event 
 from nonmaterial thought to 
-material touch the table without 
+material: touch the table without 
 desire to write more. It is dreamy. 
 It is trance. It is sobering. 
 
-I wrote a book before this one, Fleet. 
+I wrote a book before this one: Fleet. 
 I accomplished it while traveling from 
 Maryland to New Jerey. It attracted 
 mindreaders. I've never been radio 
 assaulted. The book was of my Ship, 
 not my Moonship I have under the Lord. 
 The goal was to establish a fleet of 
-ships of people like mine so that we 
-don't engage directly like ships 
-don't touch as in don't talk on the 
-water of Frequency where sound travels 
+ships, of people, like mine so that we 
+don't engage directly: like ships 
+don't touch: as in don't talk on the 
+waters of Frequency: where sound travels 
 far. 
 
 Like all my books previously, physical 
 and digital, I abandon them from my 
 eyesight one day. But I pull from my 
 mind what I may recall. I pull from 
-the environment triggers to pull from 
+the environment: triggers: to pull from 
 my mind what I may recall. 
 
 I stand up to advance my Deathparty: 
 forage until my mouth intake is 
-reassigned to food and water only. 
+only food and water. 
 
                               Tuesday 
 
@@ -1738,9 +1736,9 @@ reassigned to food and water only.
            Traintracks 
 
 As I tread the streetdusted brickpath 
-underneath steel traintracks I hear, 
-my gaydar my ears my obsession with 
-words and vocal tones, I hear a gay 
+underneath steel traintracks I hear: 
+my gaydar, my ears, my obsession with 
+words and vocal tones: I hear: a gay 
 guy. 
 
 The only issue I have is stuck in the 
@@ -1750,54 +1748,18 @@ On my end, interruption, my ears are
 tuned to tunnelfocus on articulate 
 spoken word. When I want to read, 
 write, or think, I want control of 
-the articulation between my ears, 
+the articulation between my ears: 
 and the tendtotalk gay guys cloud 
 my workspace: smoke in my eye. 
 
 On my peer's end, confusion, 
 grouping articulate person with 
-articulate person bumps me into gay 
-membership I decline. I am serious 
+articulate person bumps me into: gay 
+membership: I decline. I am serious 
 about membership. It starts on 
 serious words to support important 
-deeds before a relationship a 
-membership a friendship starts 
-strong. 
-
-The issue: in the middle, I am 
-uncomfortable. 
-
-                              Tuesday 
-
-                              Washington 
-
-           Traintracks 
-
-As I tread the streetdusted brickpath 
-underneath steel traintracks I hear, 
-my gaydar my ears my obsession with 
-words and vocal tones, I hear a gay 
-guy. 
-
-The only issue I have is stuck in the 
-middle of interruption and confusion. 
-
-On my end, interruption, my ears are 
-tuned to tunnelfocus on articulate 
-spoken word. When I want to read, 
-write, or think, I want control of 
-the articulation between my ears, 
-and the tendtotalk gay guys cloud 
-my workspace: smoke in my eye. 
-
-On my peer's end, confusion, 
-grouping articulate person with 
-articulate person bumps me into gay 
-membership I decline. I am serious 
-about membership. It starts on 
-serious words to support important 
-deeds before a relationship a 
-membership a friendship starts 
+deeds before a relationship: a 
+membership: a friendship: starts 
 strong. 
 
 The issue: in the middle, I am 
@@ -1808,7 +1770,6 @@ uncomfortable.
                               Washington 
 
            Views 
-
 
 
                               Tuesday 
@@ -1825,8 +1786,8 @@ curb, and the Church. He walks by.
 He turnsback out of Dunkins quick. 
 I ask if he can spare a cigarette. 
 He has none. He said he can help 
-out with a coffee. I get my medium 
-hot two creams waiting to melt 
+out with a coffee. I get my medium, 
+hot, two creams, waiting to melt 
 eight sugarpackets. He throws in 
 an Old Fashion donut! I set up: 
 foodbag, Bible, coffee, sugarpackets, 
@@ -1850,10 +1811,10 @@ smoke and poetry takeover the
  waterfront, 
 sewing the airway in mystic knots. 
 a yankee doodles dandy, 
-in the Black gatekeeping city. 
-carbonated water sinks my cup, 
+in the Black: gatekeeping: city. 
+carbonated water: sinks my cup, 
 heard by the catfish and Navy. 
-the dead master of macabre is near, 
+the dead master of macabre: is near, 
 buried away from the Army's Pan. 
 between: a Federal Hill climbs up, 
 to bury the Harbor with cannons. 
@@ -1888,8 +1849,8 @@ the whitevan treads the
  heartlessland of Mass & Cass, 
 a needle wabbles in a walker's 
  arm. 
-half of hundred attacked sicked 
- addicts rumage by traffic, 
+half of hundred: attacked: sicked: 
+ addicts: rumage beside traffic, 
 Hope House is one block away nested 
  between a waste facility, bus 
  terminal, and apartments. 
@@ -1897,7 +1858,7 @@ their dining room lays out a dozen
  tables, full kitchen all you can 
  eat, and cake, 
 their maindesk swims in each passerby's 
- hustle harmony. 
+ hustle: harmony. 
 drugs and drinks dance in the 
  recoverymind's schedule, 
 your best buddy walks with you 
@@ -1920,22 +1881,22 @@ your best buddy walks with you
 
 the Lord is found in the 
  space between, 
-two footsteps from my feet to his 
+two footsteps from my feet to: his 
  shoes. 
-the eighty block lower the bigguy 
+the eighty block lower, the bigguy 
  Boogie, 
-the Spanish from Haverhill the 
+the Spanish from Haverhill, the 
  Hood from Salem roots. 
-the Church program out the 
+the Church program out, the 
  Detox in Boston, 
-the Ativans I trade the Crowns I 
+the Ativans I trade, the Crowns I 
  receive. 
-the Chess by Chippy the Wis 
+the Chess by Chippy, the Wis 
  under Mark, 
-the Groups downstairs the 
+the Groups downstairs, the 
  TV Room for free. 
 clothes and food and pills is money, 
-rooms are stores my pad is laboratory. 
+rooms are stores, my pad is laboratory. 
 
                               Tuesday 
 
