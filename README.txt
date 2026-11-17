@@ -905,7 +905,7 @@ disastrous to misapply.
            Thanksgiving 
 
 Asaph and his descendants are 
-singers to and for the Lord. They 
+singers to: and for: the Lord. They 
 raise the energy to connect with 
 the Lord. They grace the Lord with 
 mention of His past dealings. 
@@ -913,12 +913,12 @@ mention of His past dealings.
 Asaph said the Lord need none of 
 the first law of Leviticus because 
 the Lord already owns all that 
-treads the land and water. Rather 
-words of gratitude to and for the 
-Lord on the very ground you still 
-stand like it is time for 
-Thanksgiving and the Lord is with 
-you two alone. 
+treads the land and water. Instead, 
+words of gratitude to: and for: the 
+Lord, on the very ground you still 
+live, like it is time for 
+Thanksgiving, and the Lord is with 
+you alone: is proper offering. 
 
                               Sunday 
 
