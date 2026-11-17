@@ -510,7 +510,7 @@ the Lord grabbed pebbles in His
 He tossed them to become: crow's eggs. 
 He went to the beach and crushed 
  stone, 
-He tossed sand into the waters, 
+He tossed sand into the waters. 
 birds, fish, land, water, air: owned. 
 a garden and a snake forsake to know, 
 a flood to clean, a man and mountain, 
