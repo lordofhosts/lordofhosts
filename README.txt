@@ -416,8 +416,8 @@ Baltimore, I'm finding the oldest
 Theatre in America is in Philly 
 called Walnut. 
 
-Walnut has personal meaning to me 
-work and places in Boston, Philly, 
+Walnut has personal meaning to me: 
+work and places: in Boston, Philly, 
 Jersey, and NYC. 
 
                               Sunday 
@@ -466,9 +466,9 @@ The Bible is alongside my fellows
 Edgar Allan Poe and Emily Dickinson. 
 
 I cannot create for a skeptic an 
-experience of another samebody 
-presence. I will tell, it is a large 
-blind spot to expect no work no play 
+experience of another: samebody 
+presence. I will tell: it is a large 
+blind spot to expect: no work, no play: 
 from the Lord and the Devil. 
 
                               Sunday 
@@ -493,7 +493,7 @@ I found his next man,
 offered him everything. 
 but he had a new plan, 
 pour the Spirit in everything. 
-I sit in Church my hand in my hand, 
+I sit in Church: my hand in my hand, 
 the oldest friend of each word that lands. 
 
                               Sunday 
@@ -507,7 +507,7 @@ the Lord gave four breaths.
 the airways opened freely, 
 the Lord grabbed pebbles in His 
  left. 
-He tossed them to become crow's eggs, 
+He tossed them to become: crow's eggs, 
 He went to the beach and crushed 
  stone. 
 He tossed sand into the waters, 
@@ -544,15 +544,15 @@ Be slow, simple, and steadfast.
            Arrival: Part 1 of 2 
            ----- 
 
-I leave at the end of Mass 
-noontime freshair. The smoke 
+I leave at the end of Mass, 
+noontime: freshair. The smoke 
 and words filled the Church. 
 Smoker's choice and poet's 
-confessions are roles to become 
+confessions are roles: to become 
 spiritual. 
 
-I cross the street of the Church 
-head into Dunkins get the 
+I cross the street of the Church, 
+head into Dunkins, get the 
 bathroom. My double Target bag is 
 from the hospital. Three shirts, 
 one jacket, and the Bible because 
@@ -582,16 +582,16 @@ Chronicles tells tales of kings
 and Levites getting bounty or 
 death from the Lord. 
 
-The first law to Moses in 
+The first law to Moses is in 
 Leviticus. 
 
-Next to David: Asaph. 
+Next to David tends to be Asaph. 
 
 My lecture notes are finished. 
 
 I head out on the road to rehearse. 
 
-In the parkinglot a man gifts me 
+In the parkinglot: a man gifts me 
 ten dollars! 
 
                               Sunday 
@@ -605,14 +605,14 @@ the safest place to be anywhere in
 the world. 
 
 I fell in love with books like women. 
-They are fine oils and rubies on lab 
-shelves these witchcraft potions. 
+They are fine oils and rubies, on lab 
+shelves: these witchcraft potions. 
 
 It is alchemy of all the arts and 
 maths. 
 
-Books are minted paper are monies 
-are deposits are treasure chests. 
+Books are minted paper: are monies: 
+are deposits: are treasure chests. 
 
                               Sunday 
 
@@ -622,8 +622,8 @@ are deposits are treasure chests.
 
 Books are my friends wearing minted 
 suits from the gravedigger who 
-tracks all exchange and without 
-scoring to choose what shall 
+tracks all exchange, and without 
+scoring: to choose what shall 
 passby the gates of Time. 
 
 Nietzsche desperately scribes for 
@@ -648,7 +648,7 @@ these hill's problems?
            Kings 
 
 King Solomon secured all his bounty 
-from the Lord since King David's 
+from the Lord and King David's 
 reign. The first five chapters of 
 Kings show the order of operations 
 to secure bounty under the Lord. 
@@ -659,7 +659,7 @@ Five Movements:
   Eliminate enemies that would take 
    bounty. 
   Cut deals with other authority to 
-   respect and share bounty. 
+   share bounty. 
   Build something for Higher Authority. 
 
                               Sunday 
@@ -676,15 +676,15 @@ Headphones plugged in.
 
 I've been paying attention. 
 
-Red, blue. Hot, cold. Bloods, Crips. 
+Red, blue: Hot, cold: Bloods, Crips. 
 
 Army Go! 
 
-The Death of Slim Shady after Music 
-to be Murdered By after Kamikaze. 
+The Death of Slim Shady, after Music 
+to be Murdered By, after Kamikaze. 
 
 I know who it is. It's Kid Cudi! The 
-Adventures Of Moon Man & Slim Shady. 
+Adventures Of Moon Man & Slim Shady: 
 Moon Man killed Slim Shady! 
 
 Hip Hop is a tragedy, not a joke. 
@@ -728,11 +728,10 @@ smoke before dionysian dance. Aside
 from smoke offerings, animal sacrifice, 
 and confessions: mysterious body 
 movement in secure private places 
-like the mountainside. 
-
-A skill like a muscle takes up space 
-and attracts events like bees to 
-flowers. 
+like the mountainside: 
+  A skill, like a muscle, takes up space 
+  and attracts events: like bees to 
+  flowers. 
 
            ----- 
            Stand: Part 2 of 2 
@@ -743,8 +742,8 @@ northeast to get bitten off by
 New Haven. 
 
 I stand on steps as a stage, and 
-the props: Marlboro leftover, a 
-leafbed 4Aces, empty vodka, and my 
+the props: a Marlboro leftover, a 
+leafbed 4Aces, an empty vodka, and my 
 Target bag. 
 
                               Sunday 
@@ -757,8 +756,8 @@ Target bag.
            Land: Part 1 of 2 
            ----- 
 
-I walk past Mathew Park under the 
-bridge Route 1 away from the hospital. 
+I walk past Mathew Park, under the 
+bridge, Route 1: away from the hospital. 
 Stamford is nine miles. New York City 
 is many more. 
 
@@ -767,8 +766,8 @@ is many more.
            ----- 
 
 Roads like Route 1 are a breeze in my 
-memory of walking from Elizabeth 
-New Jersey into New York City watching 
+memory of walking: from Elizabeth 
+New Jersey: into New York City: watching 
 how Jersey City rises up to the 
 skyfaces in the hallways of business: 
 I enter on the Washington Bridge, I 
