@@ -293,7 +293,7 @@ get off at Haverhill and go to
  the traintrack's bridge weedshop. 
 three drinks, and one eighth of 
  Granddaddy Purp, and Hip Hop. 
-a couple doors down the barbershop, 
+a couple doors down: the barbershop, 
  my Caesar cut, my Mixtape tour. 
 
                               Sunday 
