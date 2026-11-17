@@ -234,17 +234,17 @@ this old man on my face
 rivers of New Hampshire boost 
  airways to dislodge a cliffface. 
 green pastures in my eyes flock 
- herds, 
+ herds. 
 my curls hug my neck in place. 
 my beard grows obtuse like 
- a king, 
+ a king. 
 cracks and lines carve into 
  my skin. 
 a fat nose sniffs secrets 
  from the air, 
 my chest blooms upright 
  like a lion and a grin. 
-my reflection is of dominance, 
+my reflection is of dominance. 
 a sad look wants to dance. 
 
                               Sunday 
@@ -284,11 +284,11 @@ walkthrough subway to Jackson Square,
 walkdownhill to a raised concrete bed 
  of grass. 
 drink wine and grab hummus from 
- supermart, 
+ supermart. 
 walkthrough subway to North Station, 
  and get passed. 
 eat hummus, drink wine, and browse 
- North Shore, 
+ North Shore. 
 get off at Haverhill and go to 
  the traintrack's bridge weedshop. 
 three drinks, and one eighth of 
@@ -477,12 +477,12 @@ from the Lord and the Devil.
 
            Devil 
 
-it was just me and my man, 
-he wanted to come up with a plan. 
-how to make everything, 
+it was just me and my man. 
+he wanted to come up with a plan: 
+how to make everything. 
 so I gave him a hand. 
 but then my man, 
-fell in love with the plan. 
+fell in love with the plan, 
 more than his man, 
 so I had to ditch. 
 I fell on the land, 
@@ -504,20 +504,20 @@ the oldest friend of each word that lands.
 
 in the beginning was the land, 
 the Lord gave four breaths. 
-the airways opened freely, 
+the airways opened freely. 
 the Lord grabbed pebbles in His 
- left. 
-He tossed them to become: crow's eggs, 
+ left, 
+He tossed them to become: crow's eggs. 
 He went to the beach and crushed 
- stone. 
+ stone, 
 He tossed sand into the waters, 
 birds, fish, land, water, air: owned. 
 a garden and a snake forsake to know, 
-a flood to clean, a man and mountain. 
+a flood to clean, a man and mountain, 
 a tower to heaven, prophets see and hear, 
 a Spirit pours inland like a fountain. 
 a Bible is Ark of Covenant, 
-a meal is crumbs. 
+a meal is crumbs, 
 a smoke is prize, 
 a coffee is rum. 
 
@@ -791,17 +791,17 @@ Trolli candy between my fingers,
 weed in my Camel pack is my fix. 
 Holy Bible journeys in my knapsack, 
 miles of dirt under my stony nails. 
-Ramen noodles give birth in a bottle, 
+Ramen noodles give birth in a bottle. 
 spoon in my garlic hummus never fails. 
-legs hug a hilltree for lofty sleep, 
-feet hold two steps of hood concrete. 
-hands carry french toast and coffee, 
+legs hug a hilltree for lofty sleep. 
+feet hold two steps of hood concrete, 
+hands carry french toast and coffee. 
 New Haven locomotive breezes for 
  New York City streets. 
-First Communion bread stops my tongue, 
+First Communion bread stops my tongue. 
 Ovid lays railwork from the past 
  for my eyes. 
-Dunkin Donuts is my study hall, 
+Dunkin Donuts is my study hall. 
 Forage KiD CuDi in the Library by 
  my hands, ears, and eyes. 
 
@@ -1109,7 +1109,7 @@ nights maximize: warmtime, asleep.
 Spell: 
   I walk, I wait, 
   I focus, I submit. 
-  for Section Eight, 
+  for Section Eight: 
   the Lord's gift. 
 
                               Monday 
@@ -1633,7 +1633,7 @@ Big L a Rapper.
            Witchcraft 
 
 Spell: 
-  make my chest, 
+  make my chest 
   feel Her glow. 
   when I'm at rest, 
   She's the sole focus I know. 
@@ -1670,7 +1670,7 @@ you complain:
 you do me: 
   Nightmares, 
   Daydreams, 
-  roadways your never see. 
+  roadways your feet never see. 
 Lucifer is hungry, 
 mindreaders haunting: 
   Ghost of Harmony, 
@@ -1769,7 +1769,7 @@ uncomfortable.
 
                               Washington 
 
-           Views 
+           River 
 
 
                               Tuesday 
@@ -1860,7 +1860,7 @@ their dining room lays out a dozen
 their maindesk swims in each passerby's 
  hustle: harmony. 
 drugs and drinks dance in the 
- recoverymind's schedule, 
+ recoverymind's schedule. 
 your best buddy walks with you 
  across Mass & Cass at noon for 
  refreshments. 
@@ -1884,18 +1884,18 @@ the Lord is found in the
 two footsteps from my feet to: his 
  shoes. 
 the eighty block lower, the bigguy 
- Boogie, 
+ Boogie. 
 the Spanish from Haverhill, the 
  Hood from Salem roots. 
 the Church program out, the 
- Detox in Boston, 
+ Detox in Boston. 
 the Ativans I trade, the Crowns I 
  receive. 
 the Chess by Chippy, the Wis 
- under Mark, 
+ under Mark. 
 the Groups downstairs, the 
  TV Room for free. 
-clothes and food and pills is money, 
+clothes and food and pills is money. 
 rooms are stores, my pad is laboratory. 
 
                               Tuesday 
