@@ -1026,7 +1026,7 @@ Route 1. Sinkwater already comes
 from a few buildings. I still need 
 one more jacket to blanket my legs 
 at night. I'm grabbing a drawstring 
-bag from Dicks. I need winter socks. 
+bag from Dicks. I need winter socks: 
 I'll go to Kohl's for that. 
 
 There's two food banks to check: the 
@@ -1034,11 +1034,11 @@ Center and one in the Hood. That
 kitchen gets me two meals a day so 
 I don't need to rely on Route 1. 
 
-Wait! Instant coffee. I'm getting 
+Wait! Instant coffee: I'm getting 
 that. 
 
-I forage up and come back down near 
-the Tree to grab my Target bag and 
+I forage up, and come back down: near 
+the Tree to: grab my Target bag and 
 go. I switch bags curbside. 
 
                               Monday 
@@ -1048,8 +1048,8 @@ go. I switch bags curbside.
            Center 
 
 I stop by the Center for a foodbag 
-so I can work on my witchcraft notes 
-instead of going through SONO to 
+so I can work on my witchcraft notes, 
+instead of going through SONO to: 
 grab a meal from the kitchen in the 
 Hood. 
 
@@ -1095,10 +1095,10 @@ I get to the riverfront and decide
 my Deal with the Lord could save 
 my glowtime. My slow, simple, and 
 steadfast pledges need to earn me 
-the Lord's ward: Moonroom. 
+the Lord's ward: my Moonroom. 
 
 I head back to the Tree. Early 
-nights maximize warmtime asleep. 
+nights maximize: warmtime, asleep. 
 
                               Monday 
 
