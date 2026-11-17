@@ -307,7 +307,7 @@ two bath, twothousand squarefoot
 place by Little River. 
 
 Mixcraft, Yeti, Razor, Google Keep, 
-ASUS, and Sound Cloud make a closet 
+ASUS, and Sound Cloud: make a closet: 
 a booth. 
 
 Wonderboom gives me lectures from 
@@ -319,8 +319,8 @@ Haverhill, coffee beans from
 Boston. 
 
 I'm holding down the fort for 
-family with my money while going 
-to war with obligations over how 
+family with my money, while going 
+to war with obligations: over how 
 my time is spent to fit a schedule. 
 
 It breaks my mind down, it weighs 
@@ -339,25 +339,25 @@ In Bridgewater, I read Emily
 Dickinson. She takes the softheart 
 out of a brave youngman. 
 
-I hear a keyword a critical matter 
-a tonechange from a witch that 
+I hear a keyword: a critical matter: 
+a tonechange: from a witch: who 
 farms in the Bridgeater Triangle. 
 I hand over myself like a pot of 
-gold like property ready for use 
+gold: like property ready for use: 
 to her, her voice, her positions, 
 her motions, my guesswork at her 
 lifestyle. 
 
-There is a loveblend a potion a 
-book a poet a witch. 
+There is a loveblend: a potion: a 
+book, a poet, a witch. 
 
-I write until ink is cursed any 
-strike of a pen mints a page into 
-lottery for prophecy. 
+I write until ink is cursed: any 
+strike of a pen: mints a page into 
+lottery: for prophecy. 
 
 I group words and things and my 
-body until I become a host an 
-inme notme exists! 
+body until: I become a host: an 
+inme notme: exists! 
 
 Her. 
 
