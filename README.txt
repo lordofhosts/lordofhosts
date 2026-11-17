@@ -59,7 +59,7 @@ It is his mind regardless of any
 deals. His private pride hovers 
 above everything like the Lord of 
 Hosts fishing for His next prophet. 
-Nick's engineer head wants to tower 
+Nick's engineerhead wants to tower 
 over places to spot his optimal 
 living conditions. 
 
