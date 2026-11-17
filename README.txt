@@ -984,7 +984,7 @@ an unused hood corner for an hour.
            ----- 
 
 My righthand checks my pocket like a 
-mountainman his traps. A $2 silver 
+mountainman: his traps. A $2 silver 
 coin from India. An Irishman's 
 chosen coin to inherit and charm. 
 
@@ -1209,7 +1209,7 @@ laid out on the double yellow,
 waiting for the cops to show. 
 
 For Jim, 
-  I walk up to Lorca. I ask him: 
+  I walk up to Lorca. I tell him: 
   where's Saint Gabriel. He tells me to 
   cross the Benjamin Franklin Bridge 
   aloft the Delaware from Philadelphia 
@@ -1347,7 +1347,7 @@ whites of their eyes. I don't press
 charges. The rain initializes that 
 definition of a kill before my 
 stitches walk past that city: like 
-every city wants war: not winners: 
+every city: wants war: not winners: 
 wants losers. I hunt by Yale next. 
 
            ----- 
@@ -1359,21 +1359,21 @@ Irish eyes: that strongarm Fordism
 best: high value man delivers high 
 value scripts for free while taking 
 mere food and drink and spent smoke 
-as the lowest business costs 
+as the lowest business costs, 
 systematically, like you never want 
 to play cards with a young Nick 
 doing the physical Owld Maid. 
   Yale. 
   Yeats. 
-  l. 
-  lose. 
-  trap. 
-  T. 
-  Model T. 
+    l. 
+    lose. 
+    trap. 
+    T. 
+    Model T. 
   Yate. 
   Yeat. 
   Who walks? 
-  Yeats. 
+    Yeats. 
 
            ----- 
            Finale: Part 5 of 9 
@@ -1414,7 +1414,7 @@ Jim will win:
    think it wise to: sideline 
    themselves as high value. You 
    each fail as King Lear, 
-   Americans. 
+   Americans: you fail to distribute. 
 
            ----- 
            Picture: Part 6 of 9 
@@ -1443,19 +1443,20 @@ By one smoke staged on the dock:
  nearest the Domino Factory, 
 By one smoke outside the gates of 
  Fort McHenry, 
-By the U-turn from each car, van, 
- and truck after those four loose 
- ones were smoked: leaving 
+By the U-turn from each car each van 
+ and each truck after those four 
+ loose ones were smoked: leaving 
  Fort McHenry, 
 By incantations of Time's deathwatch: 
- placed beneath the hypnotic hand of: 
+ placed beneath the hypnotic hand on: 
  a wall beside Federal Hill, 
 Logic the rapper is my 
  Partner In Crime: he's been looking 
                    for God. 
+
 I don't just cut deals for a ward 
- from the Lord, I hustle high values 
- to get my Moonroom too. 
+from the Lord, I hustle high values 
+to get my Moonroom too. 
 
            ----- 
            Address: Part 7 of 9 
@@ -1463,7 +1464,7 @@ I don't just cut deals for a ward
 
 Dear Lord, 
   At the end of Under Pressure, 
-  Logic has the broken down diamond 
+  Logic has the brokendown diamond 
   from gypsys: Snatch. 
 
   The last Moonroom I had was when 
@@ -1630,7 +1631,7 @@ Big L a Rapper.
 
                               Park 
 
-           Witchcraft 
+           Singular 
 
 Spell: 
   make my chest 
@@ -1647,22 +1648,22 @@ Spell:
 I have eyes. 
 you have eyes. 
 can we stare at eachother? 
-no mindreaders: no. 
+no, mindreaders: no. 
 
 I have rules. 
 you have rules. 
 can we follow eachother's rules? 
-no authority: no. 
+no, authority: no. 
 
 you work. 
 I outwork you. 
 don't compare. 
 I lap you. 
 
-wishes in your head. 
-Fates break you 
-by the wings on your ankles, 
-and drag you to. 
+wishes in your head: 
+  Fates break you 
+  by the wings on your ankles, 
+  and drag you to. 
 
 you complain, 
 you fuck around, 
@@ -1754,7 +1755,7 @@ my workspace: smoke in my eye.
 
 On my peer's end, confusion, 
 grouping articulate person with 
-articulate person bumps me into: gay 
+articulate person: bumps me into: gay 
 membership: I decline. I am serious 
 about membership. It starts on 
 serious words to support important 
@@ -1769,7 +1770,7 @@ uncomfortable.
 
                               Washington 
 
-           River 
+           Views 
 
 
                               Tuesday 
@@ -1900,10 +1901,9 @@ rooms are stores, my pad is laboratory.
 
                               Tuesday 
 
-                              Norwalk 
+                              Washington 
 
-           Park 
-
+           River 
 
 
                               Tuesday 
