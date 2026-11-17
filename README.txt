@@ -881,7 +881,7 @@ We can use the first few stories of
 David up until the Lord graces David 
 that a house will be made for him by 
 Himself, and the last ones of Hezekiah 
-to validate the first law of Leviticus. 
+to: validate the first law of Leviticus. 
 
 Chronicles is many years apart from 
 Moses receiving said first law. 
@@ -894,7 +894,7 @@ The storyline after Hezekiah has
 a series of failures from mistrials. 
 
 A simple comparison between two piles 
-of good and bad show: the first law is 
+of good and bad: show: the first law is 
 bountiful when applied well, and 
 disastrous to misapply. 
 
