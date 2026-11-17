@@ -678,7 +678,7 @@ I've been paying attention.
 
 Red, blue: Hot, cold: Bloods, Crips. 
 
-Army Go! 
+Army: Ain't ready 4 me, yet: Go! 
 
 The Death of Slim Shady, after Music 
 to be Murdered By, after Kamikaze. 
