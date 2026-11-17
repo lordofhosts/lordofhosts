@@ -862,14 +862,14 @@ performs as a thought experiment.
 Visualize Seven Movements: 
   Get a male bulldog. 
   Go to a tree. 
-  Lay the head of the dog at the 
+  Lay the head of the bulldog at the 
    base of the tree with one hand, 
-   palm down, on the dog's head. 
+   palm down, on the bulldog's head. 
   Speak aloud confessions, relevant. 
-  Cut the throat of the dog unto 
+  Cut the throat of the bulldog unto 
    death. 
   Toss the blood on the tree. 
-  Bury the dog nearby. 
+  Bury the bulldog nearby. 
 
                               Sunday 
 
