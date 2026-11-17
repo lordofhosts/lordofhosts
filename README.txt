@@ -465,8 +465,8 @@ Catholic Mass.
 The Bible is alongside my fellows 
 Edgar Allan Poe and Emily Dickinson. 
 
-I cannot create for a skeptic an 
-experience of another: samebody 
+I cannot create for a skeptic: an 
+experience of: another: samebody 
 presence. I will tell: it is a large 
 blind spot to expect: no work, no play: 
 from the Lord and the Devil. 
