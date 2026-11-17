@@ -32,7 +32,7 @@ not to watch, but be watched by, as
 it sees the worker does not respect 
 the workplace enough for the work: 
 the event. It is the place, the 
-manager, that turns the lights, the 
+manager: that turns the lights, the 
 respect, the event, the place: on. 
 The worker does not clockin until 
 the boss sees the whites of the 
