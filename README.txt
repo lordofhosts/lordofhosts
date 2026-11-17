@@ -803,7 +803,7 @@ Ovid lays railwork from the past
  for my eyes. 
 Dunkin Donuts is my study hall, 
 Forage KiD CuDi in the Library by 
- hands, ears, and eyes. 
+ my hands, ears, and eyes. 
 
                               Sunday 
 
@@ -820,11 +820,11 @@ pack the woodtip of a Black & Mild
 with roachweed. 
 
 Weed gives my headspace and 
-bodyspace ten minutes of stupid and 
+bodyspace: ten minutes of stupid and 
 glow. 
 
 My mind normally churns harsh 
-wordplay like distilling crude oil 
+wordplay: like distilling crude oil 
 through pipelines and chambers to 
 reshape into lamp oil and jet fuel. 
 
@@ -837,8 +837,8 @@ Wegmans.
 
 I nightwalk to my treebed. 
 
-Fortyfive degree uphill rockland to 
-scissor a tree and my head on stone 
+Fortyfive degree, uphill, rockland: to 
+scissor a tree, and my head on stone, 
 and nest in my jacket. 
 
                               Sunday 
@@ -863,9 +863,9 @@ Visualize Seven Movements:
   Get a male bulldog. 
   Go to a tree. 
   Lay the head of the dog at the 
-   base of the tree with one hand 
-   palm down on the dog's head. 
-  Speak aloud confessions relevant. 
+   base of the tree with one hand, 
+   palm down, on the dog's head. 
+  Speak aloud confessions, relevant. 
   Cut the throat of the dog unto 
    death. 
   Toss the blood on the tree. 
@@ -880,9 +880,8 @@ Visualize Seven Movements:
 We can use the first few stories of 
 David up until the Lord graces David 
 that a house will be made for him by 
-Himself, and the one before last of 
-Hezekiah to validate the first law 
-of Leviticus. 
+Himself, and the last ones of Hezekiah 
+to validate the first law of Leviticus. 
 
 Chronicles is many years apart from 
 Moses receiving said first law. 
@@ -891,12 +890,12 @@ We have a series of successful trials
 at the said start and end of 
 Chronicles. 
 
-The last storyline of Chronicles has a 
-series of failures from mistrials. 
+The storyline after Hezekiah has 
+a series of failures from mistrials. 
 
 A simple comparison between two piles 
-of good and bad show the first law is 
-bountiful when applied well and 
+of good and bad show: the first law is 
+bountiful when applied well, and 
 disastrous to misapply. 
 
                               Sunday 
