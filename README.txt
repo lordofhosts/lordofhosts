@@ -2070,7 +2070,7 @@ five senses.
 sound and touch offer the most value 
  added time to me. 
 the other three are merely 
- distractions, be they wasteful or 
+ pitstops, be they wasteful or 
  nonvalue added time. 
 
 I rise from the riverfront stonesteps 
