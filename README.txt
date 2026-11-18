@@ -1923,15 +1923,6 @@ your best buddy walks with you
 
                               Tuesday 
 
-                              Norwalk 
-
-           Hood 
-
-Find out about the dayprogram. 
-
-
-                              Tuesday 
-
                               Hood 
 
            Social 
@@ -2030,7 +2021,7 @@ know what?
 
 he says 
 he don't finish 
-he verse until 
+his verse until 
 he says 
 "Checkmate." 
 
@@ -2068,7 +2059,7 @@ of all trauma, forgotten and resolved.
            ----- 
 
 death's favorite color 
-   is the the flag 
+   is the flag 
 beside each body in the dump. 
 
            ----- 
