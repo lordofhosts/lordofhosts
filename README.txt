@@ -125,9 +125,9 @@ walkinghead: to the ground.
                |         | 
 New York City<-One<------| 
                          v 
-               Tree<-----West     River 
-                         ^        ^ 
-                         |        | 
+               Tree<-----West     
+                         ^        River 
+                         |        ^ 
                          v        | 
                Park<-----Main---->Washington 
                          ^ 
@@ -1984,6 +1984,107 @@ heading for New Haven.
 
            Detox 
 
+           ----- 
+           Ace: Part 1 of 3 
+           ----- 
+
+who do you think you are, are? 
+moving around, 
+tinkering star, ar, ars: 
+   collecting that Love of ours 
+   into those jars of hearts. 
+you're gonna' catch a cold, old 
+with the NICE 
+inside of your soul, oul, oul. 
+don't come back to me. 
+who do you think you are? 
+
+           ----- 
+           Hearts: Part 2 of 3 
+           ----- 
+
+dance alone in empty space. 
+sing myself a lullaby. 
+Irish goodbye. 
+
+           ----- 
+           Purity: Part 3 of 3 
+           ----- 
+
+purity of heart is: to will one thing. 
+caught in a pully system: walking. 
+
+                              Tuesday 
+
+                              River 
+
+           Yale 
+
+           ----- 
+           Black: Part 1 of 6 
+           ----- 
+
+New Haven. 
+Pelle Pelle. 
+know what? 
+
+he says 
+he don't finish 
+he verse until 
+he says 
+"Checkmate." 
+
+           ----- 
+           White: Part 2 of 6 
+           ----- 
+
+Haverhill. 
+beatNick. 
+know what? 
+
+I say: 
+  you don't leave 
+     the ring 
+  I put you in. 
+
+           ----- 
+           Purple: Part 3 of 6 
+           ----- 
+
+her favorite color 
+   is the amulet 
+of all love, lost and found. 
+
+           ----- 
+           Green: Part 4 of 6 
+           ----- 
+
+his favorite color 
+   is the daydream 
+of all trauma, forgotten and resolved. 
+
+           ----- 
+           Pink: Part 5 of 6 
+           ----- 
+
+death's favorite color 
+   is the the flag 
+beside each body in the dump. 
+
+           ----- 
+           Senses: Part 6 of 6 
+           ----- 
+
+five senses. 
+sound and touch offer the most value 
+ added time to me. 
+the other three are merely 
+ distractions, be they wasteful or 
+ nonvalue added time. 
+
+I rise from the riverfront stonesteps 
+ onto the sidewalk to the next 
+ traintrack bridge. 
 
                               Tuesday 
 
@@ -1991,7 +2092,8 @@ heading for New Haven.
 
            Card 
 
-
+A card that fails to pay will do. 
+The register must be visited and used. 
 
                               Tuesday 
 
@@ -1999,7 +2101,10 @@ heading for New Haven.
 
            L 
 
-
+Walk in. 
+Go straight ahead. 
+Take a hard turn: left or right. 
+That is how the entrance must be. 
 
                               Tuesday 
 
@@ -2007,7 +2112,12 @@ heading for New Haven.
 
            Example 
 
-
+There is what you desire. 
+There is what you do exchange with. 
+It takes two to cover how to get 
+ what you desire. 
+Lose the exchange. 
+Leave. 
 
                               Tuesday 
 
