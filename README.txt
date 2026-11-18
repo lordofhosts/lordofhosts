@@ -1770,7 +1770,7 @@ I wrote a book before this one: Fleet.
 I accomplished it while traveling from 
 Maryland to New Jerey. It attracted 
 mindreaders. I've never been radio 
-assaulted. The book was of my Ship, 
+raided. The book was of my Ship, 
 not my Moonship I have under the Lord. 
 The goal was to establish a fleet of 
 ships, of people, like mine so that we 
