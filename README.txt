@@ -2009,7 +2009,7 @@ caught in a pully system: walking.
 
                               River 
 
-           Yale 
+           Hospitals 
 
            ----- 
            Black: Part 1 of 6 
