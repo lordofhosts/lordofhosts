@@ -1948,9 +1948,9 @@ rooms are stores, my pad is laboratory.
 
                               Tuesday 
 
-                              Washington 
+                              Main 
 
-           River 
+           Washington 
 
 down the street, a square tower 
  from the Stone Age 
