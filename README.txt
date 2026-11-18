@@ -1602,6 +1602,17 @@ Big L a Rapper.
 
                               Park 
 
+           Devil 
+
+say this way 
+my man is dead. 
+it easily applies 
+to everybody else instead. 
+
+                              Tuesday 
+
+                              Park 
+
            Deathparty 
 
            ----- 
@@ -1643,7 +1654,38 @@ Spell:
 
                               Park 
 
+           Moonfuel 
+
+the Lord is maker. 
+He respects one who goes to make 
+ Him make something for oneself. 
+perhaps, He will make said one: 
+ something. 
+but who wants to deal with such 
+ a dangerous perhaps, 
+ beyond good and evil, 
+ for Love: 
+Nick. 
+
+                              Tuesday 
+
+                              Park 
+
+           MVC 
+
+from Merrimack Valley to New Haven: 
+   Holocaust Exhibit wants: 
+Nick's tower to beat Nick. 
+
+                              Tuesday 
+
+                              Park 
+
            Tragedy 
+
+           ----- 
+           Share: Part 1 of 3 
+           ----- 
 
 I have eyes. 
 you have eyes. 
@@ -1659,6 +1701,10 @@ you work.
 I outwork you. 
 don't compare. 
 I lap you. 
+
+           ----- 
+           Blowback: Part 2 of 3 
+           ----- 
 
 wishes in your head: 
   Fates break you 
@@ -1686,6 +1732,20 @@ EOS:
 Too many cut deals without knowing: 
  The Devil's Mill by Samuel Love. 
 my name is Nick. 
+
+           ----- 
+           Workethic: Part 3 of 3 
+           ----- 
+
+you think: I'm new. 
+you think: I'm product. 
+you think: I'm development. 
+but you don't know: 
+ new product development. 
+because you don't know: 
+ engineering of systems. 
+and you won't know: Her: 
+ EOS. 
 
 mindreaders, 
 treat tragedy as entertainment: 
@@ -1766,12 +1826,7 @@ strong.
 The issue: in the middle, I am 
 uncomfortable. 
 
-                              Tuesday 
-
-                              Washington 
-
-           Views 
-
+I turnback to go up West instead. 
 
                               Tuesday 
 
@@ -1832,7 +1887,7 @@ the white rapid of the North is in.
 
 I signin to the Library computer. 
 
-I email myself my Deathparty. 
+I email myself Deathparty. 
 
 I draft until my notes on survival 
 tactics are complete. 
@@ -1872,13 +1927,14 @@ your best buddy walks with you
 
            Hood 
 
+Find out about the dayprogram. 
 
 
                               Tuesday 
 
-                              Park 
+                              Hood 
 
-           Middleton 
+           Social 
 
 the Lord is found in the 
  space between, 
@@ -1905,12 +1961,35 @@ rooms are stores, my pad is laboratory.
 
            River 
 
+down the street, a square tower 
+ from the Stone Age 
+is carved into by the 
+ airdrums of each hovertrain. 
+down the street, casino windows 
+ are a moneywall: a wallet 
+ required. 
+my boots walk the brickway 
+from brickmason's hands gone, 
+ unadmired. 
+follow the bricksnake to find 
+stonesteps down to the 
+ riverfront: a loverlane. 
+double lanes of Route 1 and 
+ hovertrains, both braven, 
+heading for New Haven. 
+
+                              Tuesday 
+
+                              River 
+
+           Detox 
+
 
                               Tuesday 
 
                               Tree 
 
-           Tactic1 
+           Card 
 
 
 
@@ -1918,7 +1997,7 @@ rooms are stores, my pad is laboratory.
 
                               Tree 
 
-           Tactic2 
+           L 
 
 
 
@@ -1926,7 +2005,7 @@ rooms are stores, my pad is laboratory.
 
                               Tree 
 
-           Tactic3 
+           Example 
 
 
 
