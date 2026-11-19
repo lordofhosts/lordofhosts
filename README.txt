@@ -1871,9 +1871,6 @@ I signin to the Library computer.
 
 I email myself Deathparty. 
 
-I draft until my notes on survival 
-tactics are complete. 
-
 I head back out to smoke it up in 
 SONO. 
 
@@ -2100,7 +2097,7 @@ mindreaders disrespect that grace for
 such disrespect by them easily 
  disconnects them from experiencing 
  such gifts of people, places, and 
- things here before you were. 
+ things here before they were. 
 
            ----- 
            Purity: Part 6 of 6 
