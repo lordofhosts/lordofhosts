@@ -15,10 +15,9 @@ it sees the worker does not respect
 the workplace enough for the work: 
 the event. It is the place, the 
 manager: that turns the lights, the 
-respect, the event, the place: on. 
-The worker does not clockin until 
-the boss sees the whites of the 
-worker's eyes. 
+respect, the event: on. The worker 
+does not clockin until the boss sees 
+the whites of the worker's eyes. 
 
 Nick bestows upon himself a 
 personal responsibility to find 
@@ -162,11 +161,11 @@ That seaship cloud began somewhere.
 
 When breeze brave enough to 
 climbfly like a dragon up to the 
-peak of a mountain: tackles the top 
+peak of a mountain: tackles its top 
 off onto the otherside: the 
 breeze dies suicide and the 
 mountain gives the breeze new 
-life: as a cloud sprouts. 
+life: as a cloud: sprouting. 
 
                               Sunday 
 
@@ -177,7 +176,7 @@ life: as a cloud sprouts.
 The windways roll between clouds 
 like bowling balls in lanes. I 
 hear the smacking of the wind 
-thud to the eardrum and airdrum, 
+thud to my eardrum and airdrums, 
 above. 
 
 Above is the only direction. It 
@@ -196,7 +195,7 @@ until there is no space.
 I sit inside of myself. My chest 
 like a carseat for comfort. She 
 is there. A noticeable shaky 
-emotion that rubs off: glow: on me. 
+emotion that rubs: glow: on me. 
 She drives me. We Love. We are in 
 a Relationship. 
 
@@ -323,7 +322,7 @@ out of a brave youngman.
 
 I hear a keyword: a critical matter: 
 a tonechange: from a witch: who 
-farms in the Bridgeater Triangle. 
+farms in the Bridgewater Triangle. 
 I hand over myself like a pot of 
 gold: like property ready for use: 
 to her, her voice, her positions, 
@@ -639,7 +638,7 @@ Five Movements:
   Do a Higher Authority's wishes. 
   Get bounty from Higher Authority. 
   Eliminate enemies that would take 
-   bounty. 
+   the bounty. 
   Cut deals with other authority to 
    share bounty. 
   Build something for Higher Authority. 
@@ -665,7 +664,7 @@ Army: Ain't ready 4 me, yet: Go!
 The Death of Slim Shady, after Music 
 to be Murdered By, after Kamikaze. 
 
-I know who it is. It's Kid Cudi! The 
+I know who it is. It's KiD CuDi! The 
 Adventures Of Moon Man & Slim Shady: 
 Moon Man killed Slim Shady! 
 
@@ -676,11 +675,11 @@ Hip Hop is a tragedy, not a joke.
            ----- 
 
 I have my top five: 
-  1. Big L 
-  2. Tupac 
-  3. Biggie 
+  1. BiG L 
+  2. TuPaC 
+  3. BiGgIe 
   4. Door 
-  5. Eminem stuck in the 
+  5. EmInEm stuck in the 
      knockknock problem. 
 
            ----- 
@@ -690,7 +689,7 @@ I have my top five:
 I have a Moonship. Bounty from the 
 Lord. 
 
-Build me a Moonroom in New Haven! 
+Build me a Moonroom to New Haven! 
 
                               Sunday 
 
@@ -738,7 +737,7 @@ Target bag.
            Land: Part 1 of 2 
            ----- 
 
-I walk past Mathew Park, under the 
+I walk away from Mathew Park, under the 
 bridge, Route 1: away from the hospital. 
 Stamford is nine miles. New York City 
 is many more. 
@@ -767,11 +766,11 @@ I can have material happiness.
  
            Loot 
 
-Space Dust parade in my hand, 
+Space Dust parade in my hand. 
 Newport cigarette between my lips. 
-Trolli candy between my fingers, 
+Trolli candy between my fingers. 
 weed in my Camel pack is my fix. 
-Holy Bible journeys in my knapsack, 
+Holy Bible journeys in my knapsack. 
 miles of dirt under my stony nails. 
 Ramen noodles give birth in a bottle. 
 spoon in my garlic hummus never fails. 
@@ -808,7 +807,7 @@ glow.
 My mind normally churns harsh 
 wordplay: like distilling crude oil 
 through pipelines and chambers to 
-reshape into lamp oil and jet fuel. 
+reform it to lamp oil and jet fuel. 
 
 I eat my Avocado Spicy Turkey from 
 Wegmans. 
@@ -912,7 +911,7 @@ you alone: is proper offering.
            Hill: Part 1 of 4 
            ----- 
 
-I wake up and see the streetweeper. 
+I wake up and see the streetsweeper. 
 It's at least threethirty in the 
 morning. 
 
@@ -926,7 +925,7 @@ my valuables loose.
 I sidehill walk: autumn's skeleton 
 leaves blown inland from England. My 
 devilry must go slow and simple and 
-steady to keep the Lord in agreement 
+steadfast to keep the Lord in agreement 
 with my settlement. 
 
            ----- 
@@ -966,8 +965,8 @@ an unused hood corner for an hour.
            ----- 
 
 My righthand checks my pocket like a 
-mountainman: his traps. A $2 silver 
-coin from India. An Irishman's 
+mountainman checks his traps. A $2 
+silver coin from India. An Irishman's 
 chosen coin to inherit and charm. 
 
 The last lucky money was from my 
@@ -1030,7 +1029,7 @@ go. I switch bags curbside.
            Center 
 
 I stop by the Center for a foodbag 
-so I can work on my witchcraft notes, 
+so I can work on my witchcraft spells, 
 instead of going through SONO to: 
 grab a meal from the kitchen in the 
 Hood. 
@@ -1101,9 +1100,9 @@ Spell:
            Simple 
 
 Spell: 
-  only food and water, 
+  only food and water 
   in my mouth. 
-  no smoke, no mirror, 
+  no smoke, no mirror. 
   Her glow without doubt. 
 
                               Monday 
@@ -1113,9 +1112,9 @@ Spell:
            Steadfast 
 
 Spell: 
-  sleep with this book, 
+  sleep with this book 
   for its future come true. 
-  take another look, 
+  take another look 
   to see what to do. 
 
                               Monday 
@@ -1153,9 +1152,8 @@ my energy?
 
 Baltimore. Deathparty. I kept death 
 rattling: my devil voice: that makes 
-dogs bitch silent or barkback well, 
-like the crows that follow me up 
-well. 
+dogs bitch silent or barkback well. 
+Meanwhile the crows follow me up well. 
 
 As Dawn breaks, Lucifer walks into my 
 fingers to pick my rightpocket: 
@@ -1175,9 +1173,9 @@ can't trap.
 I show up to a party Jim Morrison 
 wasn't invited to. 
 
-Lorca is smoking a cigarette by the 
-door, where a newguy falls down the 
-stairs and crashes into the inside 
+Lorca is smoking a cigarette outside 
+the door, where a newguy falls down 
+the stairs and crashes into the inside 
 of that door. 
 
 Jim kicked the guy. Oddly, the guy 
@@ -1202,9 +1200,9 @@ For Jim,
            Signs: Part 2 of 9 
            ----- 
 
-Philly knows me too well. Their 
-libraries have Irishman gold: from 
-me for: their Newsvendor. 
+Philly and I work together well. Their 
+libraries have Irishman gold: from me 
+for: their Newsvendor. 
 
 I march that bridge past the 
 Bad Blue Boys label. 
@@ -1229,7 +1227,7 @@ A village life mixes with the edge of
  the Hood. 
 I walk the busroute backward upon 
  awakening. 
-The highways have me bearing right. 
+The highways have me going right. 
 Another Wawa. 
 Cherry Hill New Jersey. 
 King Street: left. 
@@ -1292,13 +1290,12 @@ video clip.
 I talk aloud before invasion's 
 trophysign: staged before an 
 audience: understood as a Poet: 
-We, viewer and I like no viewer at 
-all, don't exist when these words 
-speak: to live perhaps as long as 
-a bug's life before the 
-interruption of any sound: 
-disrespecting skill's wishes to 
-serve bill's wishes: 
+We, viewer and I, no longer exist 
+when these words speak: to live 
+perhaps as long as a bug's life 
+before the interruption of any 
+sound: disrespecting skill's 
+wishes to serve bill's wishes: 
   Lorca told me. 
   Saint Gabriel, 
   not Jesus, 
@@ -1310,7 +1307,7 @@ serve bill's wishes:
   Feeds events of people and things 
    to those cursed to walk at least 
    one place. 
-  This, me, Poet, Engineer demands: 
+  This, me, Poet, Engineer: demands: 
    the knife to the throat of Apollo 
    by the sober hands of his brother, 
    Dionysus, until Apollo speaks the 
@@ -1330,21 +1327,22 @@ charges. The rain initializes that
 definition of a kill before my 
 stitches walk past that city: like 
 every city: wants war: not winners: 
-wants losers. I hunt by Yale next. 
+wants losers. I work by Yale next. 
 
            ----- 
            Irish: Part 4 of 9 
            ----- 
 
-Yale will greenrose bendover for: my 
-Irish eyes: that strongarm Fordism 
-best: high value man delivers high 
-value scripts for free while taking 
-mere food and drink and spent smoke 
-as the lowest business costs, 
-systematically, like you never want 
-to play cards with a young Nick 
-doing the physical Owld Maid. 
+The Yale Greater Area will greenrose 
+bendover for: my Irish eyes: that 
+strongarm Fordism best: high value 
+man delivers high value scripts for 
+free while taking mere food and 
+drink and spent smoke as the lowest 
+business costs, systematically, like 
+you never want to play cards with a 
+young Nick doing the physical: 
+Owld Maid. 
   Yale. 
   Yeats. 
     l. 
@@ -1405,15 +1403,15 @@ Jim will win:
 By Ploy and 27th in Baltimore: 
  you never disrespect any sign 
  nearthere, 
-By Logic the rapper's footwork down 
+By LoGiC the rapper's footwork down 
  Saint Paul: heading towards Key and 
  Federal Hill as Inner Bay could be 
  eyesighted by him: to his left, 
-By Logic's Vinyl Days Music Video 
- shutdown: after the way I speak in 
- the Library nearest Saratoga, 
-By the lack of recognition Logic 
- exists: from Baltimore prisontime: 
+By LoGiC's Vinyl Days Music Videos 
+ getting shutdown: after the way I 
+ speak in the Library nearest Saratoga, 
+By the lack of recognition LoGiC 
+ exists: by Baltimore prisontime: 
  talks with me well, 
 By the four loose ones from Eutaw: from 
  fake pearls I stole from Walmart, 
@@ -1432,7 +1430,7 @@ By the U-turn from each car each van
 By incantations of Time's deathwatch: 
  placed beneath the hypnotic hand on: 
  a wall beside Federal Hill, 
-Logic the rapper is my 
+LoGiC the rapper is my 
  Partner In Crime: he's been looking 
                    for God. 
 
@@ -1446,7 +1444,7 @@ to get my Moonroom too.
 
 Dear Lord, 
   At the end of Under Pressure, 
-  Logic has the brokendown diamond 
+  LoGiC has the brokendown diamond 
   from gypsys: Snatch. 
 
   The last Moonroom I had was when 
@@ -1479,7 +1477,7 @@ Dear Lord,
   that's a ward! 
 
   At the end of Under Pressure, 
-  Logic looks up at the rearview to 
+  LoGiC looks up at the rearview to 
   make eyecontact with me: in the 
   back of the car: 
     Lucifer smoking a loose one, 
@@ -1504,11 +1502,10 @@ Dear Lord,
   now, in way of my bounty, Lord. 
 
   My Partner In Crime is the rapper, 
-  Logic. He gets diamonds as I get 
+  LoGiC. He gets diamonds as I get 
   my Moonroom. That is the second 
   movement by King Solomon: to cut 
-  deals with other authority to 
-  share bounty. 
+  deals for others to share bounty. 
 
   Finally, for You Lord, not a house 
   from King Solomon, his third 
@@ -1524,8 +1521,8 @@ Dear Lord,
   comradery: Her and only Her: I am no 
   one but Hers. The others: love for 
   family, respect for what is sacred, 
-  courtesy, faithfulness, cleanliness, and 
-  patriotism: can all go to the bottom 
+  courtesy, faithfulness, cleanliness, 
+  and patriotism: can all go to the bottom 
   of the Chesapeake Bay: over Your saved 
   Body. This is not Mr. DeMolay, Lord, 
   this is Nick. I don't make the same 
@@ -1566,10 +1563,10 @@ I need to land.
 My Moonship is glitching on me. 
 Okay. 
 Deathbound Lord. 
-Directly involve another man, Logic, 
+Directly involve another man, LoGiC, 
  I don't know face to face. 
 Okay. 
-Send this to Logic! 
+Send this to LoGiC! 
 Get it to him quick. 
 I don't want to cross that line. 
 There's no black in my DNA. 
@@ -1752,7 +1749,7 @@ I wrote a book before this one: Fleet.
 I accomplished it while traveling from 
 Maryland to New Jerey. It attracted 
 mindreaders. I've never been radio 
-raided. The book was of my Ship, 
+bombed. The book was of my Ship, 
 not my Moonship I have under the Lord. 
 The goal was to establish a fleet of 
 ships, of people, like mine so that we 
@@ -1884,7 +1881,7 @@ the whitevan treads the
  heartlessland of Mass & Cass, 
 a needle wabbles in a walker's 
  arm. 
-half of hundred: attacked: sicked: 
+around onehundred: attacked: sicked: 
  addicts: rumage beside traffic, 
 Hope House is one block away nested 
  between a waste facility, bus 
@@ -1907,29 +1904,29 @@ your best buddy walks with you
            Social 
 
 the Lord is found in the 
- space between, 
+ space between. 
 two footsteps from my feet to: his 
  shoes. 
-the eighty block lower, the bigguy 
+the eighty block lower. the bigguy 
  Boogie. 
-the Spanish from Haverhill, the 
+the Spanish from Haverhill. the 
  Hood from Salem roots. 
-the Church program out, the 
+the Church program out. the 
  Detox in Boston. 
 the Ativans I trade, the Crowns I 
  receive. 
-the Chess by Chippy, the Wis 
+the Chess by Chippy. the Wis 
  under Mark. 
-the Groups downstairs, the 
+the Groups downstairs. the 
  TV Room for free. 
 clothes and food and pills is money. 
 rooms are stores, my pad is laboratory. 
 
                               Tuesday 
 
-                              Main 
+                              Hood 
 
-           Washington 
+           Main 
 
 down the street, a square tower 
  from the Stone Age 
@@ -1976,10 +1973,10 @@ Haverhill.
 beatNick. 
 know what? 
 
-I say: 
+he says: 
   you don't leave 
      the ring 
-  I put you in. 
+  he puts you in. 
 
            ----- 
            Purple: Part 3 of 6 
@@ -2003,7 +2000,7 @@ of all trauma, forgotten and resolved.
 
 death's favorite color 
    is the flag 
-beside each body in the dump. 
+beside each body in the site. 
 
            ----- 
            Senses: Part 6 of 6 
@@ -2014,7 +2011,7 @@ sound and touch offer the most value
  added time to me. 
 the other three are merely 
  pitstops, be they wasteful or 
- nonvalue added time. 
+ nonvalue added time to me. 
 
                               Tuesday 
 
@@ -2044,7 +2041,6 @@ with the NICE
 inside of your soul, oul, oul. 
 don't come back to me. 
 who do you think you are? 
-
 
            ----- 
            Five: Part 3 of 6 
@@ -2078,7 +2074,6 @@ each object I touch this way is
  another artifact for my 
  Moonroom. 
 
-
            ----- 
            Fortyfives: Part 5 of 6 
            ----- 
@@ -2097,7 +2092,7 @@ mindreaders disrespect that grace for
 such disrespect by them easily 
  disconnects them from experiencing 
  such gifts of people, places, and 
- things here before they were. 
+ things. 
 
            ----- 
            Purity: Part 6 of 6 
