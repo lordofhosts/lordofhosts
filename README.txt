@@ -1878,17 +1878,17 @@ SONO.
            Boston 
 
 the whitevan treads the 
- heartlessland of Mass & Cass, 
+ heartlessland of Mass & Cass. 
 a needle wabbles in a walker's 
  arm. 
 around onehundred: attacked: sicked: 
- addicts: rumage beside traffic, 
+ addicts: rumage beside traffic. 
 Hope House is one block away nested 
  between a waste facility, bus 
  terminal, and apartments. 
 their dining room lays out a dozen 
  tables, full kitchen all you can 
- eat, and cake, 
+ eat, and cake. 
 their maindesk swims in each passerby's 
  hustle: harmony. 
 drugs and drinks dance in the 
