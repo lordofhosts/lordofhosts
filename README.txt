@@ -1,23 +1,5 @@
                               New England 
 
-           Publish 
-
-Copyright © 2026 Nick Morris 
-This work is distributed free of 
-charge. You are free to share, 
-copy, and redistribute the 
-material in any medium or 
-format, provided you give 
-appropriate credit to the 
-author. 
-
-Published by Nick Morris 
-https://github.com/lordofhosts 
-
-                              November 
-
-                              New England 
-
            GIFT 
            A BOOK 
 
@@ -134,7 +116,7 @@ New York City<-One<------|
                          | 
                          Hood 
 
-                              2026 
+                              Novemeber 
 
                               Library 
 
