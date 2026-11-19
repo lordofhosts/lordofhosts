@@ -1973,42 +1973,6 @@ heading for New Haven.
 
                               River 
 
-           Detox 
-
-           ----- 
-           Ace: Part 1 of 3 
-           ----- 
-
-who do you think you are, are? 
-moving around, 
-tinkering star, ar, ars: 
-   collecting that Love of ours 
-   into those jars of hearts. 
-you're gonna' catch a cold, old 
-with the NICE 
-inside of your soul, oul, oul. 
-don't come back to me. 
-who do you think you are? 
-
-           ----- 
-           Hearts: Part 2 of 3 
-           ----- 
-
-dance alone in empty space. 
-sing myself a lullaby. 
-Irish goodbye. 
-
-           ----- 
-           Purity: Part 3 of 3 
-           ----- 
-
-purity of heart is: to will one thing. 
-caught in a pully system: walking. 
-
-                              Tuesday 
-
-                              River 
-
            Hospitals 
 
            ----- 
@@ -2073,42 +2037,95 @@ the other three are merely
  pitstops, be they wasteful or 
  nonvalue added time. 
 
-I rise from the riverfront stonesteps 
- onto the sidewalk to the next 
- traintrack bridge. 
-
                               Tuesday 
 
-                              Tree 
+                              River 
 
-           Card 
+           Detox 
 
-A card that fails to pay will do. 
-The register must be visited and used. 
+           ----- 
+           Hearts: Part 1 of 6 
+           ----- 
 
-                              Tuesday 
+dance alone in empty space. 
+sing myself a lullaby. 
+Irish goodbye. 
 
-                              Tree 
+           ----- 
+           Ace: Part 2 of 6 
+           ----- 
 
-           L 
+who do you think you are, are? 
+moving around, 
+tinkering star, ar, ars: 
+   collecting that Love of ours 
+   into those jars of hearts. 
+you're gonna' catch a cold, old 
+with the NICE 
+inside of your soul, oul, oul. 
+don't come back to me. 
+who do you think you are? 
 
-Walk in. 
-Go straight ahead. 
-Take a hard turn: left or right. 
-That is how the entrance must be. 
 
-                              Tuesday 
+           ----- 
+           Five: Part 3 of 6 
+           ----- 
 
-                              Tree 
+incantation: 
+   slow: Stone. 
+   simple: Stone. 
+   steadfast: Ivory. 
+   singular: Ivory. 
+each time I speak aloud 
+ an oath word: 
+another part of my Moonroom 
+ is made. 
+each time a spoken oath 
+ word puts me in a new 
+ emotional state: 
+my Moonroom collects 
+ Moonglow. 
 
-           Example 
+           ----- 
+           Jack: Part 4 of 6 
+           ----- 
 
-There is what you desire. 
-There is what you do exchange with. 
-It takes two to cover how to get 
- what you desire. 
-Lose the exchange. 
-Leave. 
+charm: 
+   slow, 
+   simple, 
+   steadfast motions on a 
+   singular object. 
+each object I touch this way is 
+ another artifact for my 
+ Moonroom. 
+
+
+           ----- 
+           Fortyfives: Part 5 of 6 
+           ----- 
+
+grace is a gift you don't deserve. 
+you were not thrown into existence. 
+everything that was made before your 
+ birth are gifts you don't deserve 
+ from those makers. 
+
+my first spiritual gift was receiving 
+ the ability to be possessed by a 
+ female presence. 
+mindreaders disrespect that grace for 
+ me as I hold on to it still! 
+such disrespect by them easily 
+ disconnects them from experiencing 
+ such gifts of people, places, and 
+ things here before you were. 
+
+           ----- 
+           Purity: Part 6 of 6 
+           ----- 
+
+purity of heart is: to will one thing. 
+caught in a pully system: walking. 
 
                               Tuesday 
 
