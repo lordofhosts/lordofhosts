@@ -2259,7 +2259,7 @@ he failed.
 she sets flame aloft to climbfly 
  like a dragon up the treealtar. 
 
-                              2026 
+                              Tuesday 
 
                               New Haven 
 
@@ -2340,4 +2340,4 @@ July 2022:
     that climbs footbound uphills to 
     the Washington Bridge. 
 
-                              2026 
+                              Tuesday 
