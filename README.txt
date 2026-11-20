@@ -2281,7 +2281,7 @@ He walksby people without bumping
 into those who already can't sense 
 his existence. He exits 
 Union Station and walks away down 
-the sidealks to the Green. He goes 
+the sidewalks to the Green. He goes 
 right to pass the Library on his 
 right. A right on College Street 
 brings him past Yale campus 
@@ -2326,7 +2326,7 @@ presence.
 
 Boogie begins. 
 
-What Boogie will find out becuase of 
+What Boogie will find out because of 
 these DAMN. mindreaders that watch me 
 dot the top of each handwritten k 
 since Lock Street Nashua New Hampshire 
@@ -2336,8 +2336,15 @@ July 2022:
     written, thinking, and typing word. 
    my dice dump of all ghostcoin by 
     bombing it, even by Farkle's 
-    ruleset, is in Jersry City Hood 
+    ruleset, is in Jersey City Hood 
     that climbs footbound uphills to 
     the Washington Bridge. 
 
                               Tuesday 
+
+                              New England 
+
+           RECESS 
+
+                              November 
+
