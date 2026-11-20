@@ -1,10 +1,10 @@
                               New England 
 
-           A CHRONICLE 
+           CHRONICLE 
 
-           -----
+           ----- 
            Job: Part 1 of 4 
-           -----
+           ----- 
 
 Poet, Nick, and first-rate engineer 
 is thrown violently into the 
@@ -2347,4 +2347,3 @@ July 2022:
            RECESS 
 
                               November 
-
