@@ -2141,23 +2141,33 @@ Yale<------|                |
            Boston 
 
                Haverhill 
-
+               ^ 
+               | 
                North Station 
-
-Forest Hills   Orange 
-
-Dimock         BMC 
-
+               ^ 
+               | 
+Forest Hills<->Orange 
+               ^ 
+               | 
+               v 
+Dimock<--------BMC 
+               ^ 
+               | 
 Hope House     Mass&Cass 
-
-Weedshop       South Bay 
-
-Beach          Andrew         Southie 
-
+               ^ 
+               | 
+Weedshop<------South Bay 
+               ^ 
+               | 
+Beach<---------Andrew-------->Southie 
+               | 
+               v 
                Red 
-
+               | 
+               v 
                South Station 
-
+               | 
+               v 
                New Haven 
 
                               2026 
