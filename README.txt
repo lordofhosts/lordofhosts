@@ -2150,10 +2150,10 @@ Forest Hills<->Orange
                ^ 
                | 
                v 
-Dimock<--------BMC 
+Hood<----------BMC 
                ^ 
                | 
-Hope House     Mass&Cass 
+Hope House<----Mass&Cass 
                ^ 
                | 
 Weedshop<------South Bay 
@@ -2176,6 +2176,80 @@ Beach<---------Andrew-------->Southie
 
            Haverhill 
 
+               Plaistow 
+               ^ 
+               | 
+               v
+               Little River 
+               ^ 
+               | 
+               v
+               Aves<-------->Webster<---->Castle 
+               ^             ^ 
+               |             | 
+               v             v 
+Crystal Lake<->Hood<-------->Library 
+               ^             ^ 
+               |             | 
+               v             v 
+Westgate<----->Train<------->Washington<->Riverside 
+               |             ^ 
+               |             | 
+               v             v 
+               Boston        River 
+                             ^ 
+                             | 
+                             v 
+                             Church 
+                             ^ 
+                             | 
+                             v 
+                             Bradford 
+                             ^ 
+                             | 
+                             v 
+                             Ward Hill 
 
+                              2026 
+
+                              Haverhill 
+
+           Sonya 
+
+Sonya walks by the lottomart on her 
+right in the foothills of the Hood. 
+Behind that lottomart, a river rolls 
+down an industrail waterfall. 
+
+To her left, in Lafeyette Square, 
+the statue: cavalry. 
+
+Crossing the street. 
+CVS: left. 
+barbershop: behind. 
+laundry mat: right. 
+gas station: ahead. 
+
+She walks into the gas station for 
+a drink and a bottle of lighter 
+fluid. 
+
+She crosses the street, CVS ahead. 
+takes a right uphill, closing in 
+ on the Hood. 
+wraps around left, up another hill, 
+ a church on left. 
+gets to Swasey Feild. 
+walks the feild edge, ballparks on 
+ left. 
+climbs up a fortyfive degree 
+ inclinehill, grass and dirt. 
+enters the wood. 
+finds the voodoo treealtar a man 
+ brought her to last night to rape 
+ her at. 
+he failed. 
+she sets flame aloft to climbfly 
+ like a dragon up the treealtar. 
 
                               2026 
