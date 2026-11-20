@@ -2292,10 +2292,52 @@ bookpower towers supreme on all
 the inner workings of each walking 
 student. 
 
-He walks 
+He walks past the dug out understage 
+up agsinst Yale's Holocaust Exhibit. 
+The Exhibit guts out the perimeter 
+floorspace for the first floor to 
+have an outdoors stonepatio space 
+with a ceiling. The warm windows 
+house forbidden books whioch form a 
+tower Library: 
+   a small block: an intersection 
+   across three lanes in a Library: 
+   with many floors booking more 
+   upward. 
 
+He looks around the low activity 
+nighttime and finds no eyes walking. 
+He grabs ahold of the doorhandle. A 
+river of frequency is sent from his 
+hand into the handle, through the 
+metal platting, into the lock with 
+minimal frequency lost along the way 
+to unlock the door. He walks in and 
+the door claps shut. 
 
+He gets past glassdoors to the inner 
+elevator and works it on to bring him 
+up floors as he pleases. He studies. 
 
+Nick has too much craft done in 
+nonmaterial feilds. What Nick know 
+not will be made to offset his 
+presence. 
 
+Boogie begins. 
+
+What Boogie will find out becuase of 
+these DAMN. mindreaders that watch me 
+dot the top of each handwritten k 
+since Lock Street Nashua New Hampshire 
+July 2022: 
+   word = currency. 
+   my ghostcoins increment per spoken, 
+    written, thinking, and typing word. 
+   my dice dump of all ghostcoin by 
+    bombing it, even by Farkle's 
+    ruleset, is in Jersry City Hood 
+    that climbs footbound uphills to 
+    the Washington Bridge. 
 
                               2026 
