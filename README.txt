@@ -1,7 +1,7 @@
                               New England 
 
            GIFT 
-           A BOOK 
+           A CHRONICLE 
 
            -----
            Job: Part 1 of 4 
@@ -1749,11 +1749,11 @@ I wrote a book before this one: Fleet.
 I accomplished it while traveling from 
 Maryland to New Jerey. It attracted 
 mindreaders. I've never been radio 
-bombed. The book was of my Ship, 
+bombed. The book was of my Bookship, 
 not my Moonship I have under the Lord. 
 The goal was to establish a fleet of 
-ships, of people, like mine so that we 
-don't engage directly: like ships 
+bookships, of people, like mine so that 
+we don't engage directly: like ships 
 don't touch: as in don't talk on the 
 waters of Frequency: where sound travels 
 far. 
@@ -2100,6 +2100,17 @@ such disrespect by them easily
 
 purity of heart is: to will one thing. 
 caught in a pully system: walking. 
+
+                              Tuesday 
+
+                              River 
+
+           Song 
+
+a trial is upon us. 
+do not try to disarm us. 
+can't you hear the silence: 
+   slipping away-- 
 
                               Tuesday 
 
