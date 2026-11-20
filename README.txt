@@ -2298,7 +2298,7 @@ The Exhibit guts out the perimeter
 floorspace for the first floor to 
 have an outdoors stonepatio space 
 with a ceiling. The warm windows 
-house forbidden books whioch form a 
+house forbidden books which form a 
 tower Library: 
    a small block: an intersection 
    across three lanes in a Library: 
