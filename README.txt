@@ -2215,7 +2215,14 @@ Westgate<----->Train<------->Washington<->Riverside
 
            Sonya 
 
-Sonya walks by the lottomart on her 
+Sonya, I met her in 
+Holy Family Hospital of Haverhill. 
+She still arouses me to this day. 
+She is aging youth with cosmic 
+green eyes and a smoldering 
+chalky voice. 
+
+She walks by the lottomart on her 
 right. She's down in the foothills 
 down from the Hood. Behind that 
 lottomart, a river rolls down an 
@@ -2253,7 +2260,6 @@ she sets flame aloft to climbfly
  like a dragon up the treealtar. 
 
                               2026 
-
 
                               New Haven 
 
