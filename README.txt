@@ -2216,9 +2216,10 @@ Westgate<----->Train<------->Washington<->Riverside
            Sonya 
 
 Sonya walks by the lottomart on her 
-right in the foothills of the Hood. 
-Behind that lottomart, a river rolls 
-down an industrail waterfall. 
+right. She's down in the foothills 
+down from the Hood. Behind that 
+lottomart, a river rolls down an 
+industrail waterfall. 
 
 To her left, in Lafeyette Square, 
 the statue: cavalry. 
@@ -2250,5 +2251,45 @@ finds the voodoo treealtar a man
 he failed. 
 she sets flame aloft to climbfly 
  like a dragon up the treealtar. 
+
+                              2026 
+
+
+                              New Haven 
+
+           Boogie 
+
+Above, stone and metal hands 
+maintain the Union Station 
+ceiling they made. 
+
+Ghost, Boogie, climbsthroughwindow 
+to enter through the ceiling where 
+the busy hands are not. Standing 
+upright, he rides into the inside 
+of the ceiling like he's on an 
+airport conveyor belt that delivers 
+him straight onto the floor. 
+
+He walksby people without bumping 
+into those who already can't sense 
+his existence. He exits 
+Union Station and walks away down 
+the sidealks to the Green. He goes 
+right to pass the Library on his 
+right. A right on College Street 
+brings him past Yale campus 
+buildings. A left into Yale brings 
+him on a stonepath to an 
+intersection where academic 
+bookpower towers supreme on all 
+the inner workings of each walking 
+student. 
+
+He walks 
+
+
+
+
 
                               2026 
