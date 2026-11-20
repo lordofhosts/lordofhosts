@@ -2293,7 +2293,7 @@ the inner workings of each walking
 student. 
 
 He walks past the dug out understage 
-up agsinst Yale's Holocaust Exhibit. 
+up against Yale's Holocaust Exhibit. 
 The Exhibit guts out the perimeter 
 floorspace for the first floor to 
 have an outdoors stonepatio space 
