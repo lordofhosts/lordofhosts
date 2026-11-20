@@ -1,6 +1,5 @@
                               New England 
 
-           GIFT 
            A CHRONICLE 
 
            -----
