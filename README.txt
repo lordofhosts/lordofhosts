@@ -2301,7 +2301,7 @@ with a ceiling. The warm windows
 house forbidden books which form a 
 tower Library: 
    a small block: an intersection 
-   across three lanes in a Library: 
+   across a few lanes in a Library: 
    with many floors booking more 
    upward. 
 
