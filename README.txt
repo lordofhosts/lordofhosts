@@ -2117,10 +2117,10 @@ can't you hear the silence:
 
            New Haven 
 
-Boston     Grand  
-^          | 
-|          | 
-Union<-----| 
+           Grand   Boston 
+           |       ^ 
+           |       | 
+           |------>Union Station 
            | 
 Witchshop<-|------>Church 
            v 
@@ -2139,13 +2139,7 @@ Yale<------|                |
 
            Boston 
 
-               Haverhill 
-               ^ 
-               | 
-               North Station 
-               ^ 
-               | 
-Forest Hills<->Orange 
+Forest Hills<->Orange----->North Station->Haverhill  
                ^ 
                | 
                v 
@@ -2158,16 +2152,10 @@ Hope House<----Mass&Cass
 Weedshop<------South Bay 
                ^ 
                | 
-Beach<---------Andrew-------->Southie 
-               | 
-               v 
-               Red 
-               | 
-               v 
-               South Station 
-               | 
-               v 
-               New Haven 
+               Andrew----->South Station 
+               |           | 
+               v           v 
+               Beach       New Haven 
 
                               2026 
 
