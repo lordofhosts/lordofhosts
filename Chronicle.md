@@ -1315,21 +1315,21 @@ Jim will win:
 &nbsp;&nbsp;  The answers:  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The liquor bottle.  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The caps that alcoholics leave  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;     behind.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;     behind.  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The tips:  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;      keep going.  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;      just pick one "For" to pour all  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;       of you into.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;       of you into.  
 &nbsp;&nbsp;  Jim.  
 &nbsp;&nbsp;  Thumbs up holds the bottleneck:  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The microphone.  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    Drinks up.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The microphone.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    Drinks up.  
 &nbsp;&nbsp;  Back to the crowd.  
 &nbsp;&nbsp;  He performs for the writers:  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The Doors.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The Doors.  
 &nbsp;&nbsp;  Thumbs down:  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    Liquor flows.  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    On keep going.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    Liquor flows.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    On keep going.  
 &nbsp;&nbsp;  Someone!  
 &nbsp;&nbsp;  Some engineer!  
 &nbsp;&nbsp;  Pull the damn Andon Cord so the  
