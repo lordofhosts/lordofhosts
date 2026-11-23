@@ -91,7 +91,7 @@ walkinghead: to the ground.
   <tr>
     <td>
 <pre><code>
-                         Busstop->East--->New Haven 
+                         Bus Stop->East--->New Haven 
                          ^ 
                          |
                Dunkins<--Library->Church 
@@ -684,11 +684,11 @@ Build me a Moonroom to New Haven!
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Norwalk*  
 
-#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Busstop  
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Bus Stop  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Dance: Part 1 of 2</ins>  
 
-I get to the busstop where East courts  
+I get to the Bus Stop where East courts  
 West by Belden.  
 &nbsp;  
 A young woman lights off a puff of  
@@ -714,13 +714,142 @@ Target bag.
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
 
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Norwalk*  
 
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; One  
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Land: Part 1 of 2</ins>  
 
+I walk away from Mathew Park, under the  
+bridge, Route 1: away from the hospital.  
+Stamford is nine miles. New York City  
+is many more.  
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Memory: Part 2 of 2</ins>  
 
+Roads like Route 1 are a breeze in my  
+memory of walking: from Elizabeth  
+New Jersey: into New York City: watching  
+how Jersey City rises up to the  
+skyfaces in the hallways of business:  
+I enter on the Washington Bridge, I  
+find White Plains in the Bronx, I exit  
+through Mount Vernon: I eventually get  
+here to Fairfield County.  
+&nbsp;  
+Each supermart on roads like this is a  
+Mom or a Dad. These places I forage mean  
+I can have material happiness.  
 
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
 
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; One*  
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Loot  
+
+Space Dust parade in my hand. 
+Newport cigarette between my lips. 
+Trolli candy between my fingers. 
+weed in my Camel pack is my fix. 
+Holy Bible journeys in my knapsack. 
+miles of dirt under my stony nails. 
+Ramen noodles give birth in a bottle. 
+spoon in my garlic hummus never fails. 
+legs hug a hilltree for lofty sleep. 
+feet hold two steps of hood concrete, 
+hands carry french toast and coffee. 
+New Haven locomotive breezes for 
+&nbsp; New York City streets. 
+First Communion bread stops my tongue. 
+Ovid lays railwork from the past 
+&nbsp; for my eyes. 
+Dunkin Donuts is my study hall. 
+Forage KiD CuDi in the Library by 
+&nbsp; my hands, ears, and eyes. 
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; One*  
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Chestnut  
+
+Space Dust parade in my hand.  
+Newport cigarette between my lips.  
+Trolli candy between my fingers.  
+weed in my Camel pack is my fix.  
+Holy Bible journeys in my knapsack.  
+miles of dirt under my stony nails.  
+Ramen noodles give birth in a bottle.  
+spoon in my garlic hummus never fails.  
+legs hug a hilltree for lofty sleep.  
+feet hold two steps of hood concrete,  
+hands carry french toast and coffee.  
+New Haven locomotive breezes for  
+&nbsp; New York City streets.  
+First Communion bread stops my tongue.  
+Ovid lays railwork from the past  
+&nbsp; for my eyes.  
+Dunkin Donuts is my study hall.  
+Forage KiD CuDi in the Library by  
+&nbsp; my hands, ears, and eyes.  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Break: Part 1 of 2</ins>  
+
+Beside the Chestnut gas station, I  
+pack the woodtip of a Black & Mild  
+with roachweed.  
+&nbsp;  
+Weed gives my headspace and  
+bodyspace: ten minutes of stupid and  
+glow.  
+&nbsp;  
+My mind normally churns harsh  
+wordplay: like distilling crude oil  
+through pipelines and chambers to  
+reform it to lamp oil and jet fuel.  
+&nbsp;  
+I eat my Avocado Spicy Turkey from  
+Wegmans.  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Bed: Part 2 of 2</ins>  
+
+I nightwalk to my treebed.  
+&nbsp;  
+Fortyfive degree, uphill, rockland: to  
+scissor a tree, and my head on stone,  
+and nest in my jacket.  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tree*  
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Leviticus  
+
+We can make modern use of Leviticus. 
+&nbsp;  
+The first law from the Lord lists 
+the order of operations to perform a 
+bull offering that is accepted by 
+the Lord. 
+&nbsp;  
+This can be done with a discrete 
+order of events. Each time the event 
+series is written out, a simulation 
+performs as a thought experiment. 
+&nbsp;  
+Visualize Seven Movements: 
+&nbsp;&nbsp;  Get a male bulldog. 
+&nbsp;&nbsp;  Go to a tree. 
+&nbsp;&nbsp;  Lay the head of the bulldog at the 
+&nbsp;&nbsp;&nbsp;   base of the tree with one hand, 
+&nbsp;&nbsp;&nbsp;   palm down, on the bulldog's head. 
+&nbsp;&nbsp;  Speak aloud confessions, relevant. 
+&nbsp;&nbsp;  Cut the throat of the bulldog unto 
+&nbsp;&nbsp;&nbsp;   death. 
+&nbsp;&nbsp;  Toss the blood on the tree. 
+&nbsp;&nbsp;  Bury the bulldog nearby. 
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
 
 
 
