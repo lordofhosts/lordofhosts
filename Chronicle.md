@@ -1311,8 +1311,8 @@ Owld Maid.
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Finale: Part 5 of 9</ins>  
 
 Jim will win:  
-&nbsp;&nbsp;&nbsp;  There he is on stage.  
-&nbsp;&nbsp;&nbsp;  The answers:  
+&nbsp;&nbsp;  There he is on stage.  
+&nbsp;&nbsp;  The answers:  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The liquor bottle.  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The caps that alcoholics leave  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;     behind.  
@@ -1320,19 +1320,19 @@ Jim will win:
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;      keep going.  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;      just pick one "For" to pour all  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;       of you into.  
-&nbsp;&nbsp;&nbsp;  Jim.  
-&nbsp;&nbsp;&nbsp;  Thumbs up holds the bottleneck:  
+&nbsp;&nbsp;  Jim.  
+&nbsp;&nbsp;  Thumbs up holds the bottleneck:  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The microphone.  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    Drinks up.  
-&nbsp;&nbsp;&nbsp;  Back to the crowd.  
-&nbsp;&nbsp;&nbsp;  He performs for the writers:  
+&nbsp;&nbsp;  Back to the crowd.  
+&nbsp;&nbsp;  He performs for the writers:  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The Doors.  
-&nbsp;&nbsp;&nbsp;  Thumbs down:  
+&nbsp;&nbsp;  Thumbs down:  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    Liquor flows.  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    On keep going.  
-&nbsp;&nbsp;&nbsp;  Someone!  
-&nbsp;&nbsp;&nbsp;  Some engineer!  
-&nbsp;&nbsp;&nbsp;  Pull the damn Andon Cord so the  
+&nbsp;&nbsp;  Someone!  
+&nbsp;&nbsp;  Some engineer!  
+&nbsp;&nbsp;  Pull the damn Andon Cord so the  
 &nbsp;&nbsp;&nbsp;&nbsp;   skill shows up to work the space:  
 &nbsp;&nbsp;&nbsp;&nbsp;   back into a workspace, like this  
 &nbsp;&nbsp;&nbsp;&nbsp;   image of 27 made it to 33 is an  
