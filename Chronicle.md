@@ -1148,12 +1148,12 @@ laid out on the double yellow,
 waiting for the cops to show.  
 &nbsp;  
 For Jim,  
-  I walk up to Lorca. I tell him:  
-  where's Saint Gabriel. He tells me to  
-  cross the Benjamin Franklin Bridge  
-  aloft the Delaware from Philadelphia  
-  into Camden County New Jersey. He  
-  tells me there will be signs.  
+&nbsp;&nbsp;&nbsp;  I walk up to Lorca. I tell him:  
+&nbsp;&nbsp;&nbsp;  where's Saint Gabriel. He tells me to  
+&nbsp;&nbsp;&nbsp;  cross the Benjamin Franklin Bridge  
+&nbsp;&nbsp;&nbsp;  aloft the Delaware from Philadelphia  
+&nbsp;&nbsp;&nbsp;  into Camden County New Jersey. He  
+&nbsp;&nbsp;&nbsp;  tells me there will be signs.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Signs: Part 2 of 9</ins>  
 
@@ -1181,9 +1181,9 @@ Fear and Trembling by Kierkegaard.
 &nbsp;  
 A busroute.  
 A village life mixes with the edge of  
- the Hood.  
+&nbsp;&nbsp; the Hood.  
 I walk the busroute backward upon  
- awakening.  
+&nbsp;&nbsp; awakening.  
 The highways have me going right.  
 Another Wawa.  
 Cherry Hill New Jersey.  
@@ -1196,21 +1196,21 @@ I toss a rock to silence.
 I awake morning.  
 Dunkins: back down King Street.  
 I read:  
-  Sin is sin when it cannot be handled  
-  well. Whenever any it is handled  
-  well, then a great person carries  
-  it. Respect for greatness cleanses  
-  whatever it may be. By the mind and  
-  body of a great person: it: is no  
-  longer a sin.  
+&nbsp;&nbsp;&nbsp;  Sin is sin when it cannot be handled  
+&nbsp;&nbsp;&nbsp;  well. Whenever any it is handled  
+&nbsp;&nbsp;&nbsp;  well, then a great person carries  
+&nbsp;&nbsp;&nbsp;  it. Respect for greatness cleanses  
+&nbsp;&nbsp;&nbsp;  whatever it may be. By the mind and  
+&nbsp;&nbsp;&nbsp;  body of a great person: it: is no  
+&nbsp;&nbsp;&nbsp;  longer a sin.  
 &nbsp;  
-  Abraham is great. Only that cleanses  
-  the judgement: Abraham is a grave  
-  sinner by attempted murder,  
-  motivated by a source that cannot  
-  be cross examined well by anyone  
-  else. Therefore, such a motive,  
-  the Lord, fails to get respect.  
+&nbsp;&nbsp;&nbsp;  Abraham is great. Only that cleanses  
+&nbsp;&nbsp;&nbsp;  the judgement: Abraham is a grave  
+&nbsp;&nbsp;&nbsp;  sinner by attempted murder,  
+&nbsp;&nbsp;&nbsp;  motivated by a source that cannot  
+&nbsp;&nbsp;&nbsp;  be cross examined well by anyone  
+&nbsp;&nbsp;&nbsp;  else. Therefore, such a motive,  
+&nbsp;&nbsp;&nbsp;  the Lord, fails to get respect.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Harmony: Part 3 of 9</ins>  
 
@@ -1251,22 +1251,22 @@ perhaps as long as a bug's life
 before the interruption of any  
 sound: disrespecting skill's  
 wishes to serve bill's wishes:  
-  Lorca told me.  
-  Saint Gabriel,  
-  not Jesus,  
-  walks with the homeless.  
-  There is a Ghost.  
-  Not the Holy Spirit  
-  but a river of it:  
-    The Ghost of Harmony.  
-  Feeds events of people and things  
-   to those cursed to walk at least  
-   one place.  
-  This, me, Poet, Engineer: demands:  
-   the knife to the throat of Apollo  
-   by the sober hands of his brother,  
-   Dionysus, until Apollo speaks the  
-   word "ghost" to pivot harmony.  
+&nbsp;&nbsp;&nbsp;  Lorca told me.  
+&nbsp;&nbsp;&nbsp;  Saint Gabriel,  
+&nbsp;&nbsp;&nbsp;  not Jesus,  
+&nbsp;&nbsp;&nbsp;  walks with the homeless.  
+&nbsp;&nbsp;&nbsp;  There is a Ghost.  
+&nbsp;&nbsp;&nbsp;  Not the Holy Spirit  
+&nbsp;&nbsp;&nbsp;  but a river of it:  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The Ghost of Harmony.  
+&nbsp;&nbsp;&nbsp;  Feeds events of people and things  
+&nbsp;&nbsp;&nbsp;&nbsp;   to those cursed to walk at least  
+&nbsp;&nbsp;&nbsp;&nbsp;   one place.  
+&nbsp;&nbsp;&nbsp;  This, me, Poet, Engineer: demands:  
+&nbsp;&nbsp;&nbsp;&nbsp;   the knife to the throat of Apollo  
+&nbsp;&nbsp;&nbsp;&nbsp;   by the sober hands of his brother,  
+&nbsp;&nbsp;&nbsp;&nbsp;   Dionysus, until Apollo speaks the  
+&nbsp;&nbsp;&nbsp;&nbsp;   word "ghost" to pivot harmony.  
 &nbsp;  
 I charge back to Philly.  
 &nbsp;  
@@ -1296,92 +1296,92 @@ business costs, systematically, like
 you never want to play cards with a  
 young Nick doing the physical:  
 Owld Maid.  
-  Yale.  
-  Yeats.  
-    l.  
-    lose.  
-    trap.  
-    T.  
-    Model T.  
-  Yate.  
-  Yeat.  
-  Who walks?  
-    Yeats.  
+&nbsp;&nbsp;&nbsp;  Yale.  
+&nbsp;&nbsp;&nbsp;  Yeats.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    l.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    lose.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    trap.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    T.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    Model T.  
+&nbsp;&nbsp;&nbsp;  Yate.  
+&nbsp;&nbsp;&nbsp;  Yeat.  
+&nbsp;&nbsp;&nbsp;  Who walks?  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    Yeats.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Finale: Part 5 of 9</ins>  
 
 Jim will win:  
-  There he is on stage.  
-  The answers:  
-    The liquor bottle.  
-    The caps that alcoholics leave  
-     behind.  
-    The tips:  
-      keep going.  
-      just pick one "For" to pour all  
-       of you into.  
-  Jim.  
-  Thumbs up holds the bottleneck:  
-    The microphone.  
-    Drinks up.  
-  Back to the crowd.  
-  He performs for the writers:  
-    The Doors.  
-  Thumbs down:  
-    Liquor flows.  
-    On keep going.  
-  Someone!  
-  Some engineer!  
-  Pull the damn Andon Cord so the  
-   skill shows up to work the space:  
-   back into a workspace, like this  
-   image of 27 made it to 33 is an  
-   optimal stop for: skill to play  
-   best cards only. Renege and you  
-   live homeless: financially  
-   dishonored from moneymaking  
-   practices to: acquire values  
-   from outside because too many  
-   think it wise to: sideline  
-   themselves as high value. You  
-   each fail as King Lear,  
-   Americans: you fail to distribute.  
+&nbsp;&nbsp;&nbsp;  There he is on stage.  
+&nbsp;&nbsp;&nbsp;  The answers:  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The liquor bottle.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The caps that alcoholics leave  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;     behind.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The tips:  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;      keep going.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;      just pick one "For" to pour all  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;       of you into.  
+&nbsp;&nbsp;&nbsp;  Jim.  
+&nbsp;&nbsp;&nbsp;  Thumbs up holds the bottleneck:  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The microphone.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    Drinks up.  
+&nbsp;&nbsp;&nbsp;  Back to the crowd.  
+&nbsp;&nbsp;&nbsp;  He performs for the writers:  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    The Doors.  
+&nbsp;&nbsp;&nbsp;  Thumbs down:  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    Liquor flows.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    On keep going.  
+&nbsp;&nbsp;&nbsp;  Someone!  
+&nbsp;&nbsp;&nbsp;  Some engineer!  
+&nbsp;&nbsp;&nbsp;  Pull the damn Andon Cord so the  
+&nbsp;&nbsp;&nbsp;&nbsp;   skill shows up to work the space:  
+&nbsp;&nbsp;&nbsp;&nbsp;   back into a workspace, like this  
+&nbsp;&nbsp;&nbsp;&nbsp;   image of 27 made it to 33 is an  
+&nbsp;&nbsp;&nbsp;&nbsp;   optimal stop for: skill to play  
+&nbsp;&nbsp;&nbsp;&nbsp;   best cards only. Renege and you  
+&nbsp;&nbsp;&nbsp;&nbsp;   live homeless: financially  
+&nbsp;&nbsp;&nbsp;&nbsp;   dishonored from moneymaking  
+&nbsp;&nbsp;&nbsp;&nbsp;   practices to: acquire values  
+&nbsp;&nbsp;&nbsp;&nbsp;   from outside because too many  
+&nbsp;&nbsp;&nbsp;&nbsp;   think it wise to: sideline  
+&nbsp;&nbsp;&nbsp;&nbsp;   themselves as high value. You  
+&nbsp;&nbsp;&nbsp;&nbsp;   each fail as King Lear,  
+&nbsp;&nbsp;&nbsp;&nbsp;   Americans: you fail to distribute.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Picture: Part 6 of 9</ins>  
 
 By Ploy and 27th in Baltimore:  
- you never disrespect any sign  
- nearthere,  
+&nbsp;&nbsp; you never disrespect any sign  
+&nbsp;&nbsp; nearthere,  
 By LoGiC the rapper's footwork down  
- Saint Paul: heading towards Key and  
- Federal Hill as Inner Bay could be  
- eyesighted by him: to his left,  
+&nbsp;&nbsp; Saint Paul: heading towards Key and  
+&nbsp;&nbsp; Federal Hill as Inner Bay could be  
+&nbsp;&nbsp; eyesighted by him: to his left,  
 By LoGiC's Vinyl Days Music Videos  
- getting shutdown: after the way I  
- speak in the Library nearest Saratoga,  
+&nbsp;&nbsp; getting shutdown: after the way I  
+&nbsp;&nbsp; speak in the Library nearest Saratoga,  
 By the lack of recognition LoGiC  
- exists: by Baltimore prisontime:  
- talks with me well,  
+&nbsp;&nbsp; exists: by Baltimore prisontime:  
+&nbsp;&nbsp; talks with me well,  
 By the four loose ones from Eutaw: from  
- fake pearls I stole from Walmart,  
+&nbsp;&nbsp; fake pearls I stole from Walmart,  
 By one smoke for the cannon on  
- Federal Hill pointed at 4,  
+&nbsp;&nbsp; Federal Hill pointed at 4,  
 By one smoke outside the gates of  
- him and his muse: Mr. Poe,  
+&nbsp;&nbsp; him and his muse: Mr. Poe,  
 By one smoke staged on the dock:  
- nearest the Domino Factory,  
+&nbsp;&nbsp; nearest the Domino Factory,  
 By one smoke outside the gates of  
- Fort McHenry,  
+&nbsp;&nbsp; Fort McHenry,  
 By the U-turn from each car each van  
- and each truck after those four  
- loose ones were smoked: leaving  
- Fort McHenry,  
+&nbsp;&nbsp; and each truck after those four  
+&nbsp;&nbsp; loose ones were smoked: leaving  
+&nbsp;&nbsp; Fort McHenry,  
 By incantations of Time's deathwatch:  
- placed beneath the hypnotic hand on:  
- a wall beside Federal Hill,  
+&nbsp;&nbsp; placed beneath the hypnotic hand on:  
+&nbsp;&nbsp; a wall beside Federal Hill,  
 LoGiC the rapper is my  
- Partner In Crime: he's been looking  
-                   for God.  
+&nbsp;&nbsp; Partner In Crime: he's been looking  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;                   for God.  
 &nbsp;  
 I don't just cut deals for a ward  
 from the Lord, I hustle high values  
@@ -1390,112 +1390,112 @@ to get my Moonroom too.
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Address: Part 7 of 9</ins>  
 
 Dear Lord,  
-  At the end of Under Pressure,  
-  LoGiC has the brokendown diamond  
-  from gypsys: Snatch.  
+&nbsp;&nbsp;&nbsp;  At the end of Under Pressure,  
+&nbsp;&nbsp;&nbsp;  LoGiC has the brokendown diamond  
+&nbsp;&nbsp;&nbsp;  from gypsys: Snatch.  
 &nbsp;  
-  The last Moonroom I had was when  
-  I was seven. Mom holds my baby  
-  brother and sister in the room  
-  next to the frontdoor. She  
-  doesn't hear her name. I know the  
-  rule: wait for Mom's kiss before  
-  school. I know what Mom wants  
-  today: afterschool I stay on the  
-  bus and go to the YWCA, my  
-  firstday. Mom stresses aloud that  
-  the babysitter needs to have been  
-  here already. I hear the bus. She  
-  doesn't hear her name. I leave: to  
-  break Mom's rule: to do what Mom  
-  wants today.  
+&nbsp;&nbsp;&nbsp;  The last Moonroom I had was when  
+&nbsp;&nbsp;&nbsp;  I was seven. Mom holds my baby  
+&nbsp;&nbsp;&nbsp;  brother and sister in the room  
+&nbsp;&nbsp;&nbsp;  next to the frontdoor. She  
+&nbsp;&nbsp;&nbsp;  doesn't hear her name. I know the  
+&nbsp;&nbsp;&nbsp;  rule: wait for Mom's kiss before  
+&nbsp;&nbsp;&nbsp;  school. I know what Mom wants  
+&nbsp;&nbsp;&nbsp;  today: afterschool I stay on the  
+&nbsp;&nbsp;&nbsp;  bus and go to the YWCA, my  
+&nbsp;&nbsp;&nbsp;  firstday. Mom stresses aloud that  
+&nbsp;&nbsp;&nbsp;  the babysitter needs to have been  
+&nbsp;&nbsp;&nbsp;  here already. I hear the bus. She  
+&nbsp;&nbsp;&nbsp;  doesn't hear her name. I leave: to  
+&nbsp;&nbsp;&nbsp;  break Mom's rule: to do what Mom  
+&nbsp;&nbsp;&nbsp;  wants today.  
 &nbsp;  
-  The bus drives past my Moonroom  
-  afterschool. I do the YWCA. Their  
-  van brings me home. Outside on  
-  the concrete walled lawn: the  
-  landlord bluntly tells me my Mom  
-  died of a heartattack. She didn't  
-  even survive to the ambulance.  
-  The same ambulance I saw just a  
-  couple hours ago from the bus. I  
-  look up: no feelings, gray sky:  
-  Kafka's Silver Sky:  
-  that's a ward!  
+&nbsp;&nbsp;&nbsp;  The bus drives past my Moonroom  
+&nbsp;&nbsp;&nbsp;  afterschool. I do the YWCA. Their  
+&nbsp;&nbsp;&nbsp;  van brings me home. Outside on  
+&nbsp;&nbsp;&nbsp;  the concrete walled lawn: the  
+&nbsp;&nbsp;&nbsp;  landlord bluntly tells me my Mom  
+&nbsp;&nbsp;&nbsp;  died of a heartattack. She didn't  
+&nbsp;&nbsp;&nbsp;  even survive to the ambulance.  
+&nbsp;&nbsp;&nbsp;  The same ambulance I saw just a  
+&nbsp;&nbsp;&nbsp;  couple hours ago from the bus. I  
+&nbsp;&nbsp;&nbsp;  look up: no feelings, gray sky:  
+&nbsp;&nbsp;&nbsp;  Kafka's Silver Sky:  
+&nbsp;&nbsp;&nbsp;  that's a ward!  
 &nbsp;  
-  At the end of Under Pressure,  
-  LoGiC looks up at the rearview to  
-  make eyecontact with me: in the  
-  back of the car:  
-    Lucifer smoking a loose one,  
-    see by his neck: fur.  
+&nbsp;&nbsp;&nbsp;  At the end of Under Pressure,  
+&nbsp;&nbsp;&nbsp;  LoGiC looks up at the rearview to  
+&nbsp;&nbsp;&nbsp;  make eyecontact with me: in the  
+&nbsp;&nbsp;&nbsp;  back of the car:  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    Lucifer smoking a loose one,  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    see by his neck: fur.  
 &nbsp;  
-  Trapped!  
+&nbsp;&nbsp;&nbsp;  Trapped!  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Death: Part 8 of 9</ins>  
 
-  That is a Guillotine You're in,  
-  Lord! My Moonroom is a  
-  nonmaterial ward, and a material  
-  room: double occupancy: me and Her.  
+&nbsp;&nbsp;&nbsp;  That is a Guillotine You're in,  
+&nbsp;&nbsp;&nbsp;  Lord! My Moonroom is a  
+&nbsp;&nbsp;&nbsp;  nonmaterial ward, and a material  
+&nbsp;&nbsp;&nbsp;  room: double occupancy: me and Her.  
 &nbsp;  
-  Bear witness, Lord, the first  
-  movement by King Solomon freshly  
-  made king is to: apply threat to  
-  any enemy seeking his bounty  
-  from the Lord. That's You, right  
-  now, in way of my bounty, Lord.  
+&nbsp;&nbsp;&nbsp;  Bear witness, Lord, the first  
+&nbsp;&nbsp;&nbsp;  movement by King Solomon freshly  
+&nbsp;&nbsp;&nbsp;  made king is to: apply threat to  
+&nbsp;&nbsp;&nbsp;  any enemy seeking his bounty  
+&nbsp;&nbsp;&nbsp;  from the Lord. That's You, right  
+&nbsp;&nbsp;&nbsp;  now, in way of my bounty, Lord.  
 &nbsp;  
-  My Partner In Crime is the rapper,  
-  LoGiC. He gets diamonds as I get  
-  my Moonroom. That is the second  
-  movement by King Solomon: to cut  
-  deals for others to share bounty.  
+&nbsp;&nbsp;&nbsp;  My Partner In Crime is the rapper,  
+&nbsp;&nbsp;&nbsp;  LoGiC. He gets diamonds as I get  
+&nbsp;&nbsp;&nbsp;  my Moonroom. That is the second  
+&nbsp;&nbsp;&nbsp;  movement by King Solomon: to cut  
+&nbsp;&nbsp;&nbsp;  deals for others to share bounty.  
 &nbsp;  
-  Finally, for You Lord, not a house  
-  from King Solomon, his third  
-  movement, instead: the Ghost of Harmony:  
-  from Apollo under threat from  
-  Dionysus.  
+&nbsp;&nbsp;&nbsp;  Finally, for You Lord, not a house  
+&nbsp;&nbsp;&nbsp;  from King Solomon, his third  
+&nbsp;&nbsp;&nbsp;  movement, instead: the Ghost of Harmony:  
+&nbsp;&nbsp;&nbsp;  from Apollo under threat from  
+&nbsp;&nbsp;&nbsp;  Dionysus.  
 &nbsp;  
-  This Trap You're in, Lord, is the  
-  Altar, and blood has not been thrown  
-  on the Sides. A homeplate of seven  
-  candles before You. Of which, I  
-  choose one at the expense of six:  
-  comradery: Her and only Her: I am no  
-  one but Hers. The others: love for  
-  family, respect for what is sacred,  
-  courtesy, faithfulness, cleanliness,  
-  and patriotism: can all go to the bottom  
-  of the Chesapeake Bay: over Your saved  
-  Body. This is not Mr. DeMolay, Lord,  
-  this is Nick. I don't make the same  
-  DeMolay mistakes. I go over the head  
-  of all Inquisition: to make a Kings  
-  maneuver: on the authority of all  
-  authority: You, Lord. Get my name in  
-  Your Greek, Lord: by my name, Nick,  
-  Plato's Republic has to name me: king.  
+&nbsp;&nbsp;&nbsp;  This Trap You're in, Lord, is the  
+&nbsp;&nbsp;&nbsp;  Altar, and blood has not been thrown  
+&nbsp;&nbsp;&nbsp;  on the Sides. A homeplate of seven  
+&nbsp;&nbsp;&nbsp;  candles before You. Of which, I  
+&nbsp;&nbsp;&nbsp;  choose one at the expense of six:  
+&nbsp;&nbsp;&nbsp;  comradery: Her and only Her: I am no  
+&nbsp;&nbsp;&nbsp;  one but Hers. The others: love for  
+&nbsp;&nbsp;&nbsp;  family, respect for what is sacred,  
+&nbsp;&nbsp;&nbsp;  courtesy, faithfulness, cleanliness,  
+&nbsp;&nbsp;&nbsp;  and patriotism: can all go to the bottom  
+&nbsp;&nbsp;&nbsp;  of the Chesapeake Bay: over Your saved  
+&nbsp;&nbsp;&nbsp;  Body. This is not Mr. DeMolay, Lord,  
+&nbsp;&nbsp;&nbsp;  this is Nick. I don't make the same  
+&nbsp;&nbsp;&nbsp;  DeMolay mistakes. I go over the head  
+&nbsp;&nbsp;&nbsp;  of all Inquisition: to make a Kings  
+&nbsp;&nbsp;&nbsp;  maneuver: on the authority of all  
+&nbsp;&nbsp;&nbsp;  authority: You, Lord. Get my name in  
+&nbsp;&nbsp;&nbsp;  Your Greek, Lord: by my name, Nick,  
+&nbsp;&nbsp;&nbsp;  Plato's Republic has to name me: king.  
 &nbsp;  
-  Last words to Your first Thought on  
-  kings, Lord: before King Solomon, King  
-  David, before King David, King Saul,  
-  before King Saul, prophet Samuel. You  
-  told Samuel a king will only fail the  
-  people, but the people insist for a  
-  king too long so they will get their  
-  king, and find out that: a king under  
-  You is worse for the people than  
-  simply the people under You. That  
-  means I show You, Lord, favor with my  
-  name when my last ask of my life: my  
-  Moonroom.  
+&nbsp;&nbsp;&nbsp;  Last words to Your first Thought on  
+&nbsp;&nbsp;&nbsp;  kings, Lord: before King Solomon, King  
+&nbsp;&nbsp;&nbsp;  David, before King David, King Saul,  
+&nbsp;&nbsp;&nbsp;  before King Saul, prophet Samuel. You  
+&nbsp;&nbsp;&nbsp;  told Samuel a king will only fail the  
+&nbsp;&nbsp;&nbsp;  people, but the people insist for a  
+&nbsp;&nbsp;&nbsp;  king too long so they will get their  
+&nbsp;&nbsp;&nbsp;  king, and find out that: a king under  
+&nbsp;&nbsp;&nbsp;  You is worse for the people than  
+&nbsp;&nbsp;&nbsp;  simply the people under You. That  
+&nbsp;&nbsp;&nbsp;  means I show You, Lord, favor with my  
+&nbsp;&nbsp;&nbsp;  name when my last ask of my life: my  
+&nbsp;&nbsp;&nbsp;  Moonroom.  
 &nbsp;  
-  I read cupfulls of Your Word: Leviticus,  
-  Samuel, Chronicles, then Kings. A king  
-  is just one big deathparty under You,  
-  Lord.  
+&nbsp;&nbsp;&nbsp;  I read cupfulls of Your Word: Leviticus,  
+&nbsp;&nbsp;&nbsp;  Samuel, Chronicles, then Kings. A king  
+&nbsp;&nbsp;&nbsp;  is just one big deathparty under You,  
+&nbsp;&nbsp;&nbsp;  Lord.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
 
