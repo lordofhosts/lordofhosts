@@ -87,32 +87,11 @@ walkinghead: to the ground.
 
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Norwalk  
 
-```  
-                         Busstop->East--->New Haven
-                         ^ 
-                         |
-               Dunkins<--Library->Church 
-                         ^
-               Hospital  | 
-               ^         | 
-               |         | 
-New York City<-One<------| 
-                         v 
-               Tree<-----West     
-                         ^        River 
-                         |        ^ 
-                         v        | 
-               Park<-----Main---->Washington 
-                         ^ 
-                         | 
-                         Hood 
-```
-
 <table>
   <tr>
     <td>
 <pre><code>
-                         Busstop->East--->New Haven
+                         Busstop->East--->New Haven 
                          ^ 
                          |
                Dunkins<--Library->Church 
