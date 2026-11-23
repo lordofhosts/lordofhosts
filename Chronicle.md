@@ -124,31 +124,31 @@ The words listened by, and spoken or
 sung by the Poet: Nick: rewrite Nick's  
 destiny until the terms are met:  
 &nbsp;  
-&nbsp;&nbsp;   Hey, Mr. Rager, Mr. Rager  
-&nbsp;&nbsp;   Tell me where you're goin', tell us  
-&nbsp;&nbsp;&nbsp;    where you're headed  
-&nbsp;&nbsp;   (I'm off on the adventure) Mr. Rager  
-&nbsp;&nbsp;   Tell me some of your stories, tell  
-&nbsp;&nbsp;&nbsp;    us of your travels  
-&nbsp;&nbsp;   Hey, Mr. Rager, Mr. Rager  
-&nbsp;&nbsp;   Tell me where you're goin', tell us  
-&nbsp;&nbsp;&nbsp;    where you're headed  
-&nbsp;&nbsp;   (I'm on my way to heaven) Mr. Rager  
-&nbsp;&nbsp;   Can we tag along? Can we take the  
-&nbsp;&nbsp;&nbsp;    journey?  
+&nbsp; Hey, Mr. Rager, Mr. Rager  
+&nbsp; Tell me where you're goin', tell us  
+&nbsp;&nbsp;&nbsp; where you're headed  
+&nbsp; (I'm off on the adventure) Mr. Rager  
+&nbsp; Tell me some of your stories, tell  
+&nbsp;&nbsp;&nbsp; us of your travels  
+&nbsp; Hey, Mr. Rager, Mr. Rager  
+&nbsp; Tell me where you're goin', tell us  
+&nbsp;&nbsp;&nbsp; where you're headed  
+&nbsp; (I'm on my way to heaven) Mr. Rager  
+&nbsp; Can we tag along? Can we take the  
+&nbsp;&nbsp;&nbsp; journey?  
 &nbsp;  
-&nbsp;&nbsp;   Knocked down round for round  
-&nbsp;&nbsp;   You're feelin' like you're shot down  
-&nbsp;&nbsp;&nbsp;    on the ground  
-&nbsp;&nbsp;   When will the fantasy end?  
-&nbsp;&nbsp;   When will the heaven begin? Yeah  
-&nbsp;&nbsp;   You might be knocked down round for  
-&nbsp;&nbsp;&nbsp;    round  
-&nbsp;&nbsp;   You're feelin' like you're shot  
-&nbsp;&nbsp;&nbsp;    down on the ground  
-&nbsp;&nbsp;   When will the fantasy end? Yeah  
-&nbsp;&nbsp;   When will the heaven begin? Yeah  
-&nbsp;&nbsp;   Woah now  
+&nbsp; Knocked down round for round  
+&nbsp; You're feelin' like you're shot down  
+&nbsp;&nbsp;&nbsp; on the ground  
+&nbsp; When will the fantasy end?  
+&nbsp; When will the heaven begin? Yeah  
+&nbsp; You might be knocked down round for  
+&nbsp;&nbsp;&nbsp; round  
+&nbsp; You're feelin' like you're shot  
+&nbsp;&nbsp;&nbsp; down on the ground  
+&nbsp; When will the fantasy end? Yeah  
+&nbsp; When will the heaven begin? Yeah  
+&nbsp; Woah now  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Saturday*  
 
