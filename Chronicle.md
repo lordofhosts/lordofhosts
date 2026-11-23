@@ -841,11 +841,11 @@ Visualize Seven Movements:
 &nbsp;&nbsp;  Get a male bulldog.  
 &nbsp;&nbsp;  Go to a tree.  
 &nbsp;&nbsp;  Lay the head of the bulldog at the  
-&nbsp;&nbsp;&nbsp;   base of the tree with one hand,  
-&nbsp;&nbsp;&nbsp;   palm down, on the bulldog's head.  
+&nbsp;&nbsp;&nbsp;&nbsp;   base of the tree with one hand,  
+&nbsp;&nbsp;&nbsp;&nbsp;   palm down, on the bulldog's head.  
 &nbsp;&nbsp;  Speak aloud confessions, relevant.  
 &nbsp;&nbsp;  Cut the throat of the bulldog unto  
-&nbsp;&nbsp;&nbsp;   death.  
+&nbsp;&nbsp;&nbsp;&nbsp;   death.  
 &nbsp;&nbsp;  Toss the blood on the tree.  
 &nbsp;&nbsp;  Bury the bulldog nearby.  
 
