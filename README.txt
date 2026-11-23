@@ -313,7 +313,7 @@ Triangle.
 
                               Bridgewater 
 
-           Muse 
+           Ghost 
 
 In Bridgewater, I read Emily 
 Dickinson. She takes the softheart 
