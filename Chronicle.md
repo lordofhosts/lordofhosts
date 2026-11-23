@@ -1181,9 +1181,9 @@ Fear and Trembling by Kierkegaard.
 &nbsp;  
 A busroute.  
 A village life mixes with the edge of  
-&nbsp;&nbsp; the Hood.  
+&nbsp; the Hood.  
 I walk the busroute backward upon  
-&nbsp;&nbsp; awakening.  
+&nbsp; awakening.  
 The highways have me going right.  
 Another Wawa.  
 Cherry Hill New Jersey.  
