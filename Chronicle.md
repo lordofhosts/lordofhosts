@@ -1065,10 +1065,10 @@ Spell:
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Simple  
 
 Spell:  
-&nbsp;&nbsp;  only food and water 
-&nbsp;&nbsp;  in my mouth. 
-&nbsp;&nbsp;  no smoke, no mirror. 
-&nbsp;&nbsp;  Her glow without doubt. 
+&nbsp;&nbsp;  only food and water  
+&nbsp;&nbsp;  in my mouth.  
+&nbsp;&nbsp;  no smoke, no mirror.  
+&nbsp;&nbsp;  Her glow without doubt.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Monday*  
 
@@ -1077,10 +1077,10 @@ Spell:
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Steadfast  
 
 Spell:  
-&nbsp;&nbsp;  sleep with this book 
-&nbsp;&nbsp;  for its future come true. 
-&nbsp;&nbsp;  take another look 
-&nbsp;&nbsp;  to see what to do. 
+&nbsp;&nbsp;  sleep with this book  
+&nbsp;&nbsp;  for its future come true.  
+&nbsp;&nbsp;  take another look  
+&nbsp;&nbsp;  to see what to do.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Monday*  
 
