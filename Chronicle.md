@@ -1350,8 +1350,8 @@ Jim will win:
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Picture: Part 6 of 9</ins>  
 
 By Ploy and 27th in Baltimore:  
-&nbsp;&nbsp; you never disrespect any sign  
-&nbsp;&nbsp; nearthere,  
+&nbsp; you never disrespect any sign  
+&nbsp; nearthere,  
 By LoGiC the rapper's footwork down  
 &nbsp;&nbsp; Saint Paul: heading towards Key and  
 &nbsp;&nbsp; Federal Hill as Inner Bay could be  
