@@ -736,7 +736,7 @@ Target bag.
            Land: Part 1 of 2 
            ----- 
 
-I walk away from Mathew Park, under the 
+I walk away from Mathews Park, under the 
 bridge, Route 1: away from the hospital. 
 Stamford is nine miles. New York City 
 is many more. 
@@ -999,7 +999,7 @@ show love.
 
 I leave the Hood, drop my Target bag 
 near the Tree, and turn left at 
-Mathew Park. 
+Mathews Park. 
 
 I got food supplies yesterday on 
 Route 1. Sinkwater already comes 
