@@ -1353,34 +1353,34 @@ By Ploy and 27th in Baltimore:
 &nbsp; you never disrespect any sign  
 &nbsp; nearthere,  
 By LoGiC the rapper's footwork down  
-&nbsp;&nbsp; Saint Paul: heading towards Key and  
-&nbsp;&nbsp; Federal Hill as Inner Bay could be  
-&nbsp;&nbsp; eyesighted by him: to his left,  
+&nbsp; Saint Paul: heading towards Key and  
+&nbsp; Federal Hill as Inner Bay could be  
+&nbsp; eyesighted by him: to his left,  
 By LoGiC's Vinyl Days Music Videos  
-&nbsp;&nbsp; getting shutdown: after the way I  
-&nbsp;&nbsp; speak in the Library nearest Saratoga,  
+&nbsp; getting shutdown: after the way I  
+&nbsp; speak in the Library nearest Saratoga,  
 By the lack of recognition LoGiC  
-&nbsp;&nbsp; exists: by Baltimore prisontime:  
-&nbsp;&nbsp; talks with me well,  
+&nbsp; exists: by Baltimore prisontime:  
+&nbsp; talks with me well,  
 By the four loose ones from Eutaw: from  
-&nbsp;&nbsp; fake pearls I stole from Walmart,  
+&nbsp; fake pearls I stole from Walmart,  
 By one smoke for the cannon on  
-&nbsp;&nbsp; Federal Hill pointed at 4,  
+&nbsp; Federal Hill pointed at 4,  
 By one smoke outside the gates of  
-&nbsp;&nbsp; him and his muse: Mr. Poe,  
+&nbsp; him and his muse: Mr. Poe,  
 By one smoke staged on the dock:  
-&nbsp;&nbsp; nearest the Domino Factory,  
+&nbsp; nearest the Domino Factory,  
 By one smoke outside the gates of  
-&nbsp;&nbsp; Fort McHenry,  
+&nbsp; Fort McHenry,  
 By the U-turn from each car each van  
-&nbsp;&nbsp; and each truck after those four  
-&nbsp;&nbsp; loose ones were smoked: leaving  
-&nbsp;&nbsp; Fort McHenry,  
+&nbsp; and each truck after those four  
+&nbsp; loose ones were smoked: leaving  
+&nbsp; Fort McHenry,  
 By incantations of Time's deathwatch:  
-&nbsp;&nbsp; placed beneath the hypnotic hand on:  
-&nbsp;&nbsp; a wall beside Federal Hill,  
+&nbsp; placed beneath the hypnotic hand on:  
+&nbsp; a wall beside Federal Hill,  
 LoGiC the rapper is my  
-&nbsp;&nbsp; Partner In Crime: he's been looking  
+&nbsp; Partner In Crime: he's been looking  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;                   for God.  
 &nbsp;  
 I don't just cut deals for a ward  
