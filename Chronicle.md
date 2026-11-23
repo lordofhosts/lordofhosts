@@ -1053,10 +1053,10 @@ nights maximize: warmtime, asleep.
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Slow  
 
 Spell:  
-&nbsp;&nbsp;  I walk, I wait,  
-&nbsp;&nbsp;  I focus, I submit.  
-&nbsp;&nbsp;  for Section Eight:  
-&nbsp;&nbsp;  the Lord's gift.  
+&nbsp;&nbsp;&nbsp;  I walk, I wait,  
+&nbsp;&nbsp;&nbsp;  I focus, I submit.  
+&nbsp;&nbsp;&nbsp;  for Section Eight:  
+&nbsp;&nbsp;&nbsp;  the Lord's gift.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Monday*  
 
@@ -1065,10 +1065,10 @@ Spell:
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Simple  
 
 Spell:  
-&nbsp;&nbsp;  only food and water  
-&nbsp;&nbsp;  in my mouth.  
-&nbsp;&nbsp;  no smoke, no mirror.  
-&nbsp;&nbsp;  Her glow without doubt.  
+&nbsp;&nbsp;&nbsp;  only food and water  
+&nbsp;&nbsp;&nbsp;  in my mouth.  
+&nbsp;&nbsp;&nbsp;  no smoke, no mirror.  
+&nbsp;&nbsp;&nbsp;  Her glow without doubt.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Monday*  
 
@@ -1077,12 +1077,447 @@ Spell:
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Steadfast  
 
 Spell:  
-&nbsp;&nbsp;  sleep with this book  
-&nbsp;&nbsp;  for its future come true.  
-&nbsp;&nbsp;  take another look  
-&nbsp;&nbsp;  to see what to do.  
+&nbsp;&nbsp;&nbsp;  sleep with this book  
+&nbsp;&nbsp;&nbsp;  for its future come true.  
+&nbsp;&nbsp;&nbsp;  take another look  
+&nbsp;&nbsp;&nbsp;  to see what to do.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Monday*  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Norwalk*  
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Hood  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Goodbye: Part 1 of 2</ins>  
+
+I wake up and get my feet on West.  
+I pass the Park into the Hood and to  
+my right: is a purple vape that still  
+hits!  
+&nbsp;  
+I decide to take it as a chance to make  
+a choice: today is my goodbye to  
+substances so I can work the first  
+sentence of my Simple Spell.  
+&nbsp;  
+I grab breakfast, and the coffee I love  
+because at the end: I get a sugarshot  
+from all the sugar that bottomfeeds  
+the cup.  
+&nbsp;  
+I'm back at the Park, puffing Purple.  
+Where's the most intense position for  
+my energy?  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Closure: Part 2 of 2</ins>  
+
+Baltimore. Deathparty. I kept death  
+rattling: my devil voice: that makes  
+dogs bitch silent or barkback well.  
+Meanwhile the crows follow me up well.  
+&nbsp;  
+As Dawn breaks, Lucifer walks into my  
+fingers to pick my rightpocket:  
+Sharpie finepoint pen that a dollar  
+can't trap.  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Norwalk*  
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Park  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Party: Part 1 of 9</ins>  
+
+I show up to a party Jim Morrison  
+wasn't invited to.  
+&nbsp;  
+Lorca is smoking a cigarette outside  
+the door, where a newguy falls down  
+the stairs and crashes into the inside  
+of that door.  
+&nbsp;  
+Jim kicked the guy. Oddly, the guy  
+felt Jim granted him absent  
+permission to approach the acidstar  
+because silence enjoys the throne  
+atop stairs.  
+&nbsp;  
+I go outside to check on Jim. He's  
+laid out on the double yellow,  
+waiting for the cops to show.  
+&nbsp;  
+For Jim,  
+  I walk up to Lorca. I tell him:  
+  where's Saint Gabriel. He tells me to  
+  cross the Benjamin Franklin Bridge  
+  aloft the Delaware from Philadelphia  
+  into Camden County New Jersey. He  
+  tells me there will be signs.  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Signs: Part 2 of 9</ins>  
+
+Philly and I work together well. Their  
+libraries have Irishman gold: from me  
+for: their Newsvendor.  
+&nbsp;  
+I march that bridge past the  
+Bad Blue Boys label.  
+&nbsp;  
+I can tell straight ahead is  
+highway, left more residential, so  
+I go right through Rutgers campus:  
+southbound along the Delaware.  
+&nbsp;  
+Walt Whitman Bridge: left.  
+Black Lives Matter Boulevard: right.  
+The Hood: studies my entrance.  
+SWAT level cop boxvan: right.  
+Church: right.  
+Bookbox: ahead.  
+Loaves of bread: aloft the bookbox.  
+There!  
+Fear and Trembling by Kierkegaard.  
+&nbsp;  
+A busroute.  
+A village life mixes with the edge of  
+ the Hood.  
+I walk the busroute backward upon  
+ awakening.  
+The highways have me going right.  
+Another Wawa.  
+Cherry Hill New Jersey.  
+King Street: left.  
+Library on left, and Church on right.  
+I lay beside the Church.  
+I awake midnight.  
+A bird chirps.  
+I toss a rock to silence.  
+I awake morning.  
+Dunkins: back down King Street.  
+I read:  
+  Sin is sin when it cannot be handled  
+  well. Whenever any it is handled  
+  well, then a great person carries  
+  it. Respect for greatness cleanses  
+  whatever it may be. By the mind and  
+  body of a great person: it: is no  
+  longer a sin.  
+&nbsp;  
+  Abraham is great. Only that cleanses  
+  the judgement: Abraham is a grave  
+  sinner by attempted murder,  
+  motivated by a source that cannot  
+  be cross examined well by anyone  
+  else. Therefore, such a motive,  
+  the Lord, fails to get respect.  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Harmony: Part 3 of 9</ins>  
+
+I walk up King Street and turn left  
+into the Library and find invasion  
+treads this land. It spells it out  
+on a sign just to the left of the  
+Library's frontdoor. The British  
+didso here in the Revolutionary War.  
+I see my last name. My neck shoots  
+my chin up. There! That silence:  
+can be found in the snownight: the  
+same presence felt nearby in the  
+dark, on the way to the bathroom  
+midnight at home. That silence is  
+a Sphynx in nonmaterial fields:  
+like Frequency and Gravity.  
+&nbsp;  
+I doomstare. I have an image appear  
+in my wordbased brain. I feel  
+nervously slow like anytime danger  
+shows up to me face to face.  
+&nbsp;  
+A claylike headshape growing the  
+indentations of eyes, cheeks, and  
+the crack between lips to become  
+mouth.  
+&nbsp;  
+It darts away like a few seconds  
+video clip.  
+&nbsp;  
+I talk aloud before invasion's  
+trophysign: staged before an  
+audience: understood as a Poet:  
+We, viewer and I, no longer exist  
+when these words speak: to live  
+perhaps as long as a bug's life  
+before the interruption of any  
+sound: disrespecting skill's  
+wishes to serve bill's wishes:  
+  Lorca told me.  
+  Saint Gabriel,  
+  not Jesus,  
+  walks with the homeless.  
+  There is a Ghost.  
+  Not the Holy Spirit  
+  but a river of it:  
+    The Ghost of Harmony.  
+  Feeds events of people and things  
+   to those cursed to walk at least  
+   one place.  
+  This, me, Poet, Engineer: demands:  
+   the knife to the throat of Apollo  
+   by the sober hands of his brother,  
+   Dionysus, until Apollo speaks the  
+   word "ghost" to pivot harmony.  
+&nbsp;  
+I charge back to Philly.  
+&nbsp;  
+That train is hopping me to Princeton.  
+This is war. Baltimore found out it  
+can't respect a Yankee Doodle Dandy  
+as my blood runs from my head on  
+the dock of their Inner Bay. My blood  
+is the bloodline of revolution:  
+don't shoot until you see the  
+whites of their eyes. I don't press  
+charges. The rain initializes that  
+definition of a kill before my  
+stitches walk past that city: like  
+every city: wants war: not winners:  
+wants losers. I work by Yale next.  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Irish: Part 4 of 9</ins>  
+
+The Yale Greater Area will greenrose  
+bendover for: my Irish eyes: that  
+strongarm Fordism best: high value  
+man delivers high value scripts for  
+free while taking mere food and  
+drink and spent smoke as the lowest  
+business costs, systematically, like  
+you never want to play cards with a  
+young Nick doing the physical:  
+Owld Maid.  
+  Yale.  
+  Yeats.  
+    l.  
+    lose.  
+    trap.  
+    T.  
+    Model T.  
+  Yate.  
+  Yeat.  
+  Who walks?  
+    Yeats.  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Finale: Part 5 of 9</ins>  
+
+Jim will win:  
+  There he is on stage.  
+  The answers:  
+    The liquor bottle.  
+    The caps that alcoholics leave  
+     behind.  
+    The tips:  
+      keep going.  
+      just pick one "For" to pour all  
+       of you into.  
+  Jim.  
+  Thumbs up holds the bottleneck:  
+    The microphone.  
+    Drinks up.  
+  Back to the crowd.  
+  He performs for the writers:  
+    The Doors.  
+  Thumbs down:  
+    Liquor flows.  
+    On keep going.  
+  Someone!  
+  Some engineer!  
+  Pull the damn Andon Cord so the  
+   skill shows up to work the space:  
+   back into a workspace, like this  
+   image of 27 made it to 33 is an  
+   optimal stop for: skill to play  
+   best cards only. Renege and you  
+   live homeless: financially  
+   dishonored from moneymaking  
+   practices to: acquire values  
+   from outside because too many  
+   think it wise to: sideline  
+   themselves as high value. You  
+   each fail as King Lear,  
+   Americans: you fail to distribute.  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Picture: Part 6 of 9</ins>  
+
+By Ploy and 27th in Baltimore:  
+ you never disrespect any sign  
+ nearthere,  
+By LoGiC the rapper's footwork down  
+ Saint Paul: heading towards Key and  
+ Federal Hill as Inner Bay could be  
+ eyesighted by him: to his left,  
+By LoGiC's Vinyl Days Music Videos  
+ getting shutdown: after the way I  
+ speak in the Library nearest Saratoga,  
+By the lack of recognition LoGiC  
+ exists: by Baltimore prisontime:  
+ talks with me well,  
+By the four loose ones from Eutaw: from  
+ fake pearls I stole from Walmart,  
+By one smoke for the cannon on  
+ Federal Hill pointed at 4,  
+By one smoke outside the gates of  
+ him and his muse: Mr. Poe,  
+By one smoke staged on the dock:  
+ nearest the Domino Factory,  
+By one smoke outside the gates of  
+ Fort McHenry,  
+By the U-turn from each car each van  
+ and each truck after those four  
+ loose ones were smoked: leaving  
+ Fort McHenry,  
+By incantations of Time's deathwatch:  
+ placed beneath the hypnotic hand on:  
+ a wall beside Federal Hill,  
+LoGiC the rapper is my  
+ Partner In Crime: he's been looking  
+                   for God.  
+&nbsp;  
+I don't just cut deals for a ward  
+from the Lord, I hustle high values  
+to get my Moonroom too.  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Address: Part 7 of 9</ins>  
+
+Dear Lord,  
+  At the end of Under Pressure,  
+  LoGiC has the brokendown diamond  
+  from gypsys: Snatch.  
+&nbsp;  
+  The last Moonroom I had was when  
+  I was seven. Mom holds my baby  
+  brother and sister in the room  
+  next to the frontdoor. She  
+  doesn't hear her name. I know the  
+  rule: wait for Mom's kiss before  
+  school. I know what Mom wants  
+  today: afterschool I stay on the  
+  bus and go to the YWCA, my  
+  firstday. Mom stresses aloud that  
+  the babysitter needs to have been  
+  here already. I hear the bus. She  
+  doesn't hear her name. I leave: to  
+  break Mom's rule: to do what Mom  
+  wants today.  
+&nbsp;  
+  The bus drives past my Moonroom  
+  afterschool. I do the YWCA. Their  
+  van brings me home. Outside on  
+  the concrete walled lawn: the  
+  landlord bluntly tells me my Mom  
+  died of a heartattack. She didn't  
+  even survive to the ambulance.  
+  The same ambulance I saw just a  
+  couple hours ago from the bus. I  
+  look up: no feelings, gray sky:  
+  Kafka's Silver Sky:  
+  that's a ward!  
+&nbsp;  
+  At the end of Under Pressure,  
+  LoGiC looks up at the rearview to  
+  make eyecontact with me: in the  
+  back of the car:  
+    Lucifer smoking a loose one,  
+    see by his neck: fur.  
+&nbsp;  
+  Trapped!  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Death: Part 8 of 9</ins>  
+
+  That is a Guillotine You're in,  
+  Lord! My Moonroom is a  
+  nonmaterial ward, and a material  
+  room: double occupancy: me and Her.  
+&nbsp;  
+  Bear witness, Lord, the first  
+  movement by King Solomon freshly  
+  made king is to: apply threat to  
+  any enemy seeking his bounty  
+  from the Lord. That's You, right  
+  now, in way of my bounty, Lord.  
+&nbsp;  
+  My Partner In Crime is the rapper,  
+  LoGiC. He gets diamonds as I get  
+  my Moonroom. That is the second  
+  movement by King Solomon: to cut  
+  deals for others to share bounty.  
+&nbsp;  
+  Finally, for You Lord, not a house  
+  from King Solomon, his third  
+  movement, instead: the Ghost of Harmony:  
+  from Apollo under threat from  
+  Dionysus.  
+&nbsp;  
+  This Trap You're in, Lord, is the  
+  Altar, and blood has not been thrown  
+  on the Sides. A homeplate of seven  
+  candles before You. Of which, I  
+  choose one at the expense of six:  
+  comradery: Her and only Her: I am no  
+  one but Hers. The others: love for  
+  family, respect for what is sacred,  
+  courtesy, faithfulness, cleanliness,  
+  and patriotism: can all go to the bottom  
+  of the Chesapeake Bay: over Your saved  
+  Body. This is not Mr. DeMolay, Lord,  
+  this is Nick. I don't make the same  
+  DeMolay mistakes. I go over the head  
+  of all Inquisition: to make a Kings  
+  maneuver: on the authority of all  
+  authority: You, Lord. Get my name in  
+  Your Greek, Lord: by my name, Nick,  
+  Plato's Republic has to name me: king.  
+&nbsp;  
+  Last words to Your first Thought on  
+  kings, Lord: before King Solomon, King  
+  David, before King David, King Saul,  
+  before King Saul, prophet Samuel. You  
+  told Samuel a king will only fail the  
+  people, but the people insist for a  
+  king too long so they will get their  
+  king, and find out that: a king under  
+  You is worse for the people than  
+  simply the people under You. That  
+  means I show You, Lord, favor with my  
+  name when my last ask of my life: my  
+  Moonroom.  
+&nbsp;  
+  I read cupfulls of Your Word: Leviticus,  
+  Samuel, Chronicles, then Kings. A king  
+  is just one big deathparty under You,  
+  Lord.  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
