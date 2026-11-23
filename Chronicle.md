@@ -634,9 +634,9 @@ Five Movements:
 &nbsp;&nbsp;  Do a Higher Authority's wishes.  
 &nbsp;&nbsp;  Get bounty from Higher Authority.  
 &nbsp;&nbsp;  Eliminate enemies that would take  
-&nbsp;&nbsp;&nbsp;   the bounty.  
+&nbsp;&nbsp;&nbsp;&nbsp;   the bounty.  
 &nbsp;&nbsp;  Cut deals with other authority to  
-&nbsp;&nbsp;&nbsp;   share bounty.  
+&nbsp;&nbsp;&nbsp;&nbsp;   share bounty.  
 &nbsp;&nbsp;  Build something for Higher Authority.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
@@ -672,7 +672,7 @@ I have my top five:
 &nbsp;&nbsp;  3. BiGgIe  
 &nbsp;&nbsp;  4. Door  
 &nbsp;&nbsp;  5. EmInEm stuck in the  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;     knockknock problem.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;     knockknock problem.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Reward: Part 3 of 3</ins>  
 
