@@ -112,7 +112,6 @@ New York City<-One<------|
   <tr>
     <td>
 <pre><code>
-  const box = "tight width";
                          Busstop->East--->New Haven
                          ^ 
                          |
