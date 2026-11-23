@@ -660,8 +660,8 @@ Red, blue: Hot, cold: Bloods, Crips.
 
 Army: Ain't ready 4 me, yet: Go! 
 
-The Death of Slim Shady, after Music 
-to be Murdered By, after Kamikaze. 
+The Death Of Slim Shady, after Music 
+To Be Murdered By, after Kamikaze. 
 
 I know who it is. It's KiD CuDi! The 
 Adventures Of Moon Man & Slim Shady: 
@@ -1573,8 +1573,8 @@ I'm not Hood.
 That's a whitelie. 
 I'm a Poet. 
 Not a Rapper. 
-Jean Grae a Poet. 
-Big L a Rapper. 
+JeAn GrAe a Poet. 
+BiG L a Rapper. 
 
                               Tuesday 
 
