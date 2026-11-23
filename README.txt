@@ -139,15 +139,15 @@ destiny until the terms are met:
 
   Knocked down round for round 
   You're feelin' like you're shot down 
-   on the ground
-  When will the fantasy end?
-  When will the heaven begin? Yeah
+   on the ground 
+  When will the fantasy end? 
+  When will the heaven begin? Yeah 
   You might be knocked down round for 
-   round
+   round 
   You're feelin' like you're shot 
-   down on the ground
-  When will the fantasy end? Yeah
-  When will the heaven begin? Yeah
+   down on the ground 
+  When will the fantasy end? Yeah 
+  When will the heaven begin? Yeah 
   Woah now 
 
                               Saturday 
