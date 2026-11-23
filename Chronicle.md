@@ -242,15 +242,15 @@ a sad look wants to dance.
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Train  
 
 Myself: workboots, workpants, gray  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; sweater, snowhat, Target  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; shopping bag.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; sweater, snowhat, Target  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; shopping bag.  
 &nbsp;  
 Park: scattered wooden tables, rocky  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; groundbed, stone pillar,  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Washington and Main, New  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Haven train to New York City,  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; lightbulb trees, groundfloor  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; spotlights.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; groundbed, stone pillar,  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Washington and Main, New  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Haven train to New York City,  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; lightbulb trees, groundfloor  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; spotlights.  
 &nbsp;  
 The overhanging traintracks in  
 this towncity makes me feel the  
