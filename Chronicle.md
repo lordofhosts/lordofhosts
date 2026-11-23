@@ -1008,7 +1008,7 @@ Hood.
 I head to the Library and outline my  
 ritualwork since Bridgewater:  
 July 2022: Emily Dickinson and a  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;           witch.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;           witch.  
 July 2023: Witch praising.  
 July 2024: Hosting.  
 July 2025: Mental sorcery.  
