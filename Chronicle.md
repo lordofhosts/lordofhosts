@@ -87,7 +87,32 @@ walkinghead: to the ground.
 
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Norwalk  
 
+```  
+                         Busstop->East--->New Haven
+                         ^ 
+                         |
+               Dunkins<--Library->Church 
+                         ^
+               Hospital  | 
+               ^         | 
+               |         | 
+New York City<-One<------| 
+                         v 
+               Tree<-----West     
+                         ^        River 
+                         |        ^ 
+                         v        | 
+               Park<-----Main---->Washington 
+                         ^ 
+                         | 
+                         Hood 
+```
+
+<table>
+  <tr>
+    <td>
 <pre><code>
+  const box = "tight width";
                          Busstop->East--->New Haven
                          ^ 
                          |
@@ -107,5 +132,8 @@ New York City<-One<------|
                          | 
                          Hood 
 </code></pre>
+    </td>
+  </tr>
+</table>
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 2026*  
