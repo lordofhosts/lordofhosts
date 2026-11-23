@@ -825,29 +825,29 @@ and nest in my jacket.
 
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Leviticus  
 
-We can make modern use of Leviticus. 
+We can make modern use of Leviticus.  
 &nbsp;  
-The first law from the Lord lists 
-the order of operations to perform a 
-bull offering that is accepted by 
-the Lord. 
+The first law from the Lord lists  
+the order of operations to perform a  
+bull offering that is accepted by  
+the Lord.  
 &nbsp;  
-This can be done with a discrete 
-order of events. Each time the event 
-series is written out, a simulation 
-performs as a thought experiment. 
+This can be done with a discrete  
+order of events. Each time the event  
+series is written out, a simulation  
+performs as a thought experiment.  
 &nbsp;  
-Visualize Seven Movements: 
-&nbsp;&nbsp;  Get a male bulldog. 
-&nbsp;&nbsp;  Go to a tree. 
-&nbsp;&nbsp;  Lay the head of the bulldog at the 
-&nbsp;&nbsp;&nbsp;   base of the tree with one hand, 
-&nbsp;&nbsp;&nbsp;   palm down, on the bulldog's head. 
-&nbsp;&nbsp;  Speak aloud confessions, relevant. 
-&nbsp;&nbsp;  Cut the throat of the bulldog unto 
-&nbsp;&nbsp;&nbsp;   death. 
-&nbsp;&nbsp;  Toss the blood on the tree. 
-&nbsp;&nbsp;  Bury the bulldog nearby. 
+Visualize Seven Movements:  
+&nbsp;&nbsp;  Get a male bulldog.  
+&nbsp;&nbsp;  Go to a tree.  
+&nbsp;&nbsp;  Lay the head of the bulldog at the  
+&nbsp;&nbsp;&nbsp;   base of the tree with one hand,  
+&nbsp;&nbsp;&nbsp;   palm down, on the bulldog's head.  
+&nbsp;&nbsp;  Speak aloud confessions, relevant.  
+&nbsp;&nbsp;  Cut the throat of the bulldog unto  
+&nbsp;&nbsp;&nbsp;   death.  
+&nbsp;&nbsp;  Toss the blood on the tree.  
+&nbsp;&nbsp;  Bury the bulldog nearby.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
 
