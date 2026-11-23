@@ -95,7 +95,7 @@ walkinghead: to the ground.
 
            Norwalk 
 
-                         Busstop->East--->New Haven
+                         Bus Stop->East--->New Haven
                          ^ 
                          |
                Dunkins<--Library->Church 
@@ -694,13 +694,13 @@ Build me a Moonroom to New Haven!
 
                               Norwalk 
  
-           Busstop 
+           Bus Stop 
 
            ----- 
            Dance: Part 1 of 2 
            ----- 
 
-I get to the busstop where East courts 
+I get to the Bus Stop where East courts 
 West by Belden. 
 
 A young woman lights off a puff of 
@@ -1829,12 +1829,12 @@ straw, notebook, pen, hands. Two!
 there's two Old Fashion donuts. 
 
 After the meal I walk over to the 
-Busstop so I can smoke weed without 
+Bus Stop so I can smoke weed without 
 any trouble. 
 
                               Tuesday 
 
-                              Busstop 
+                              Bus Stop 
 
            Baltimore 
 
