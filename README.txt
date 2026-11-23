@@ -1927,22 +1927,28 @@ rooms are stores, my pad is laboratory.
 
            Main 
 
-down the street, a square tower 
- from the Stone Age 
-is carved into by the 
- airdrums of each hovertrain. 
-down the street, casino windows 
- are a moneywall: a wallet 
+down the street, each window 
+ is a moneywall: a wallet 
  required. 
 my boots walk the brickway 
 from brickmason's hands gone, 
  unadmired. 
-follow the bricksnake to find 
-stonesteps down to the 
- riverfront: a loverlane. 
-double lanes of Route 1 and 
- hovertrains, both braven, 
-heading for New Haven. 
+follow the bricksnake down to 
+ the stone stage. 
+as you approach, beware of 
+ words from old age. 
+I walk the riverface to 
+ perform for the water. 
+docked on each deck, my 
+ memories are guardians are watchers. 
+the river trains its tracks 
+ to face obstacles without turning back. 
+the fog shows not to act 
+ like I know where space goes. 
+my ears pilot invisible 
+ water. the river also rises. 
+smoke in front of this highness. 
+ your thumb triggers the lighter's pilot. 
 
                               Tuesday 
 
@@ -2104,7 +2110,7 @@ caught in a pully system: walking.
 
                               River 
 
-           Song 
+           Trial 
 
 a trial is upon us. 
 do not try to disarm us. 
