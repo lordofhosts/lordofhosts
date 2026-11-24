@@ -1652,7 +1652,7 @@ Nick.
            MVC 
 
 from Merrimack Valley to New Haven: 
-   Holocaust Exhibit wants: 
+  Holocaust Exhibit wants: 
 Nick's tower to beat Nick. 
 
                               Tuesday 
@@ -1954,10 +1954,10 @@ smoke in front of this highness.
 
                               River 
 
-           Hospitals 
+           Color 
 
            ----- 
-           Black: Part 1 of 6 
+           Black: Part 1 of 6=5 
            ----- 
 
 New Haven. 
@@ -1971,7 +1971,7 @@ he says
 "Checkmate." 
 
            ----- 
-           White: Part 2 of 6 
+           White: Part 2 of 5 
            ----- 
 
 Haverhill. 
@@ -1980,43 +1980,32 @@ know what?
 
 he says: 
   you don't leave 
-     the ring 
+    the ring 
   he puts you in. 
 
            ----- 
-           Purple: Part 3 of 6 
+           Purple: Part 3 of 5 
            ----- 
 
 her favorite color 
-   is the amulet 
+  is the amulet 
 of all love, lost and found. 
 
            ----- 
-           Green: Part 4 of 6 
+           Green: Part 4 of 5 
            ----- 
 
 his favorite color 
-   is the daydream 
+  is the daydream 
 of all trauma, forgotten and resolved. 
 
            ----- 
-           Pink: Part 5 of 6 
+           Pink: Part 5 of 5 
            ----- 
 
 death's favorite color 
-   is the flag 
+  is the flag 
 beside each body in the site. 
-
-           ----- 
-           Senses: Part 6 of 6 
-           ----- 
-
-five senses. 
-sound and touch offer the most value 
- added time to me. 
-the other three are merely 
- pitstops, be they wasteful or 
- nonvalue added time to me. 
 
                               Tuesday 
 
@@ -2039,8 +2028,8 @@ Irish goodbye.
 who do you think you are, are? 
 moving around, 
 tinkering star, ar, ars: 
-   collecting that Love of ours 
-   into those jars of hearts. 
+  collecting that Love of ours 
+  into those jars of hearts. 
 you're gonna' catch a cold, old 
 with the NICE 
 inside of your soul, oul, oul. 
@@ -2052,10 +2041,10 @@ who do you think you are?
            ----- 
 
 incantation: 
-   slow: Stone. 
-   simple: Stone. 
-   steadfast: Ivory. 
-   singular: Ivory. 
+  slow: Stone. 
+  simple: Stone. 
+  steadfast: Ivory. 
+  singular: Ivory. 
 each time I speak aloud 
  an oath word: 
 another part of my Moonroom 
@@ -2071,10 +2060,10 @@ my Moonroom collects
            ----- 
 
 charm: 
-   slow, 
-   simple, 
-   steadfast motions on a 
-   singular object. 
+  slow, 
+  simple, 
+  steadfast motions on a 
+  singular object. 
 each object I touch this way is 
  another artifact for my 
  Moonroom. 
@@ -2115,7 +2104,7 @@ caught in a pully system: walking.
 a trial is upon us. 
 do not try to disarm us. 
 can't you hear the silence: 
-   slipping away-- 
+  slipping away-- 
 
                               Tuesday 
 
@@ -2200,8 +2189,7 @@ Westgate<----->Train<------->Washington<->Riverside
                              Bradford 
                              ^ 
                              | 
-                             v 
-                             Ward Hill 
+                             Lawrence 
 
                               2026 
 
@@ -2294,10 +2282,10 @@ have an outdoors stonepatio space
 with a ceiling. The warm windows 
 house forbidden books which form a 
 tower Library: 
-   a small block: an intersection 
-   across a few lanes in a Library: 
-   with many floors booking more 
-   upward. 
+  a small block: an intersection 
+  across a few lanes in a Library: 
+  with many floors booking more 
+  upward. 
 
 He looks around the low activity 
 nighttime and finds no eyes walking. 
@@ -2314,7 +2302,7 @@ elevator and works it on to bring him
 up floors as he pleases. He studies. 
 
 Nick has too much craft done in 
-nonmaterial feilds. What Nick know 
+nonmaterial feilds. What Nick knows 
 not will be made to offset his 
 presence. 
 
@@ -2325,14 +2313,14 @@ these DAMN. mindreaders that watch me
 dot the top of each handwritten k 
 since Lock Street Nashua New Hampshire 
 July 2022: 
-   word = currency. 
-   my ghostcoins increment per spoken, 
-    written, thinking, and typing word. 
-   my dice dump of all ghostcoin by 
-    bombing it, even by Farkle's 
-    ruleset, is in Jersey City Hood 
-    that climbs footbound uphills to 
-    the Washington Bridge. 
+  word = currency. 
+  my ghostcoins increment per spoken, 
+   written, thinking, and typing word. 
+  my dice dump of all ghostcoin by 
+   bombing it, even by Farkle's 
+   ruleset, is in Jersey City Hood 
+   that climbs footbound uphills to 
+   the Washington Bridge. 
 
                               Tuesday 
 
