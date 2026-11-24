@@ -550,7 +550,7 @@ with sinkwater.
 I settle into a table to fish my  
 first ritual from the Lord.  
 &nbsp;  
-Malachi brings hellfire from the  
+Malachi brings destruction from the  
 Lord to end the Old Testament. Levi  
 was disrespected. Law to Moses  
 disrespected.  
