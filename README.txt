@@ -1251,7 +1251,7 @@ I read:
   sinner by attempted murder, 
   motivated by a source that cannot 
   be cross examined well by anyone 
-  else. Therefore, such a motive, 
+  else--so such a motive, 
   the Lord, fails to get respect. 
 
            ----- 
