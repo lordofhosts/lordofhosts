@@ -2006,7 +2006,7 @@ of all trauma, forgotten and resolved.
 
 death's favorite color 
   is the flag 
-beside each body in the site. 
+beside each unmarked gravesite. 
 
                               Tuesday 
 
