@@ -534,7 +534,7 @@ spiritual.
 I cross the street of the Church, 
 head into Dunkins, get the 
 bathroom. My double Target bag is 
-from the hospital. Three shirts, 
+from the Hospital. Three shirts, 
 one jacket, and the Bible because 
 of one Indiawoman. 
 
@@ -739,7 +739,7 @@ Target bag.
 
 I get to Mathews Park, walk away from it 
 under the bridge, Route 1: away from the 
-hospital. Stamford is nine miles. 
+Hospital. Stamford is nine miles. 
 New York City is many more. 
 
            ----- 
