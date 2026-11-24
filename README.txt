@@ -2007,7 +2007,7 @@ of all trauma, forgotten and resolved.
 
 death's favorite color 
   is the flag 
-beside each unmarked gravesite. 
+ontop each unmarked gravesite. 
 
                               Tuesday 
 
