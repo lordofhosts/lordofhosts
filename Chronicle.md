@@ -2206,7 +2206,7 @@ into those who already can't sense
 his existence. He exits  
 Union Station and walks away down  
 the sidewalks to the Green. He goes  
-right to pass the Library on his  
+left to pass the Library on his  
 right. A right on College Street  
 brings him past Yale campus  
 buildings. A left into Yale brings  
@@ -2216,7 +2216,7 @@ bookpower towers supreme on all
 the inner workings of each walking  
 student.  
 &nbsp;  
-He walks past the dug out understage  
+He walks past the dugout understage  
 up against Yale's Holocaust Exhibit.  
 The Exhibit guts out the perimeter  
 floorspace for the first floor to  
@@ -2240,7 +2240,7 @@ to unlock the door. He walks in and
 the door claps shut.  
 &nbsp;  
 He gets past glassdoors to the inner  
-elevator and works it on to bring him  
+elevator and works it to bring him  
 up floors as he pleases. He studies.  
 &nbsp;  
 Nick has too much craft done in  
@@ -2251,7 +2251,7 @@ presence.
 Boogie begins.  
 &nbsp;  
 What Boogie will find out because of  
-these DAMN. mindreaders that watch me  
+these mindreaders that watch me  
 dot the top of each handwritten k  
 since Lock Street Nashua New Hampshire  
 July 2022:  
