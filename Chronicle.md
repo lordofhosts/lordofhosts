@@ -1762,9 +1762,10 @@ out with a coffee. I get my medium,
 hot, two creams, waiting to melt  
 eight sugarpackets. He throws in  
 an Old Fashion donut! I set up:  
-foodbag, Bible, coffee, sugarpackets,  
-straw, notebook, pen, hands. Two!  
-there's two Old Fashion donuts.  
+Under Armour bag, Bible, coffee,  
+sugarpackets, straw, notebook, pen,  
+hands. Two! there's two Old Fashion  
+donuts.  
 &nbsp;  
 After the meal I walk over to the  
 Bus Stop so I can smoke weed without  
