@@ -721,10 +721,10 @@ Target bag.
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Land: Part 1 of 2</ins>  
 
-I walk away from Mathews Park, under the  
-bridge, Route 1: away from the hospital.  
-Stamford is nine miles. New York City  
-is many more.  
+I get to Mathews Park, walk away from it  
+under the bridge, Route 1: away from the  
+hospital. Stamford is nine miles.  
+New York City is many more.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Memory: Part 2 of 2</ins>  
 
