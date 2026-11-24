@@ -651,7 +651,7 @@ Headphones plugged in.
 &nbsp;  
 I've been paying attention.  
 &nbsp;  
-Red, blue: Hot, cold: Bloods, Crips.  
+Blue, red: cold, hot: Crips, Bloods.  
 &nbsp;  
 Army: Ain't ready 4 me, yet: Go!  
 &nbsp;  
