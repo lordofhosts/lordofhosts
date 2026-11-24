@@ -747,25 +747,25 @@ I can have material happiness.
 
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Loot  
 
-Space Dust parade in my hand. 
-Newport cigarette between my lips. 
-Trolli candy between my fingers. 
-weed in my Camel pack is my fix. 
-Holy Bible journeys in my knapsack. 
-miles of dirt under my stony nails. 
-Ramen noodles give birth in a bottle. 
-spoon in my garlic hummus never fails. 
-legs hug a hilltree for lofty sleep. 
-feet hold two steps of hood concrete, 
-hands carry french toast and coffee. 
-New Haven locomotive breezes for 
-&nbsp; New York City streets. 
-First Communion bread stops my tongue. 
-Ovid lays railwork from the past 
-&nbsp; for my eyes. 
-Dunkin Donuts is my study hall. 
-Forage KiD CuDi in the Library by 
-&nbsp; my hands, ears, and eyes. 
+Space Dust parade in my hand.  
+Newport cigarette between my lips.  
+Trolli candy between my fingers.  
+weed in my Camel pack is my fix.  
+Holy Bible journeys in my knapsack.  
+miles of dirt under my stony nails.  
+Ramen noodles give birth in a bottle.  
+spoon in my garlic hummus never fails.  
+legs hug a hilltree for lofty sleep.  
+feet hold two steps of hood concrete,  
+hands carry french toast and coffee.  
+New Haven locomotive breezes for  
+&nbsp; New York City streets.  
+First Communion bread stops my tongue.  
+Ovid lays railwork from the past  
+&nbsp; for my eyes.  
+Dunkin Donuts is my study hall.  
+Forage KiD CuDi in the Library by  
+&nbsp; my hands, ears, and eyes.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
 
