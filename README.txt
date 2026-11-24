@@ -1854,7 +1854,7 @@ buried away from the Army's Pan.
 between: a Federal Hill climbs up, 
 to bury the Harbor with cannons. 
 Enoch hides in one of the libraries, 
-thirtythousand files in the recycle bin. 
+thirtythousand files in one recycle bin. 
 a stage is prepared next to computers, 
 the white rapid of the North is in. 
 
