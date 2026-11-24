@@ -1596,7 +1596,7 @@ Nick.
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; MVC  
 
 from Merrimack Valley to New Haven:  
-&nbsp;&nbsp;&nbsp;&nbsp;   Holocaust Exhibit wants:  
+&nbsp;&nbsp;&nbsp;   Holocaust Exhibit wants:  
 Nick's tower to beat Nick.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
@@ -1920,37 +1920,349 @@ he says:
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Purple: Part 3 of 5</ins>  
 
 her favorite color  
-&nbsp;&nbsp;&nbsp;&nbsp;   is the amulet  
+&nbsp;&nbsp;&nbsp;   is the amulet  
 of all love, lost and found.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Green: Part 4 of 5</ins>  
 
 his favorite color  
-&nbsp;&nbsp;&nbsp;&nbsp;   is the daydream  
+&nbsp;&nbsp;&nbsp;   is the daydream  
 of all trauma, forgotten and resolved.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Pink: Part 5 of 5</ins>  
 
 death's favorite color  
-&nbsp;&nbsp;&nbsp;&nbsp;   is the flag  
+&nbsp;&nbsp;&nbsp;   is the flag  
 beside each body in the site.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
 
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; River*  
 
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Detox  
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Hearts: Part 1 of 6</ins>  
 
+dance alone in empty space.  
+sing myself a lullaby.  
+Irish goodbye.  
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Ace: Part 2 of 6</ins>  
 
+who do you think you are, are?  
+moving around,  
+tinkering star, ar, ars:  
+&nbsp;&nbsp;&nbsp;   collecting that Love of ours  
+&nbsp;&nbsp;&nbsp;   into those jars of hearts.  
+you're gonna' catch a cold, old  
+with the NICE  
+inside of your soul, oul, oul.  
+don't come back to me.  
+who do you think you are?  
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Five: Part 3 of 6</ins>  
 
+incantation:  
+&nbsp;&nbsp;&nbsp;   slow: Stone.  
+&nbsp;&nbsp;&nbsp;   simple: Stone.  
+&nbsp;&nbsp;&nbsp;   steadfast: Ivory.  
+&nbsp;&nbsp;&nbsp;   singular: Ivory.  
+each time I speak aloud  
+&nbsp; an oath word:  
+another part of my Moonroom  
+&nbsp; is made.  
+each time a spoken oath  
+&nbsp; word puts me in a new  
+&nbsp; emotional state:  
+my Moonroom collects  
+&nbsp; Moonglow.  
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Jack: Part 4 of 6</ins>  
 
+charm:  
+&nbsp;&nbsp;&nbsp;   slow,  
+&nbsp;&nbsp;&nbsp;   simple,  
+&nbsp;&nbsp;&nbsp;   steadfast motions on a  
+&nbsp;&nbsp;&nbsp;   singular object.  
+each object I touch this way is  
+&nbsp; another artifact for my  
+&nbsp; Moonroom.  
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Fortyfives: Part 5 of 6</ins>  
 
+grace is a gift you don't deserve.  
+you were not thrown into existence.  
+everything that was made before your  
+&nbsp; birth are gifts you don't deserve  
+&nbsp; from those makers.  
+&nbsp;  
+my first spiritual gift was receiving  
+&nbsp; the ability to be possessed by a  
+&nbsp; female presence.  
+mindreaders disrespect that grace for  
+&nbsp; me as I hold on to it still!  
+such disrespect by them easily  
+&nbsp; disconnects them from experiencing  
+&nbsp; such gifts of people, places, and  
+&nbsp; things.  
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Purity: Part 6 of 6</ins>  
 
+purity of heart is: to will one thing.  
+caught in a pully system: walking.  
 
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; River*  
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Trial  
+
+a trial is upon us.  
+do not try to disarm us.  
+can't you hear the silence:  
+&nbsp;&nbsp;&nbsp;  slipping away--  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; New England*  
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; New Haven  
+
+<table>
+  <tr>
+    <td>
+<pre><code>
+           Grand   Boston 
+           |       ^ 
+           |       | 
+           |------>Union Station 
+           | 
+Witchshop<-|------>Church 
+           v 
+Library<---Green----------->College->One->Norwalk 
+           ^                ^ 
+Yale<------|                | 
+           v                v 
+           York--->Theatre->Books 
+           ^                ^ 
+           |                | 
+           Center           Hood 
+</code></pre>
+    </td>
+  </tr>
+</table>
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 2026*  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; New England*  
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Boston  
+
+<table>
+  <tr>
+    <td>
+<pre><code>
+Forest Hills<->Orange----->North Station->Haverhill  
+               ^ 
+               | 
+               v 
+Hood<----------BMC 
+               ^ 
+               | 
+Hope House<----Mass&Cass 
+               ^ 
+               | 
+Weedshop<------South Bay 
+               ^ 
+               | 
+               Andrew----->South Station 
+               |           | 
+               v           v 
+               Beach       New Haven 
+</code></pre>
+    </td>
+  </tr>
+</table>
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 2026*  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; New England*  
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Haverhill  
+
+<table>
+  <tr>
+    <td>
+<pre><code>
+               Plaistow 
+               ^ 
+               | 
+               v
+               Little River 
+               ^ 
+               | 
+               v
+               Aves<-------->Webster<---->Castle 
+               ^             ^ 
+               |             | 
+               v             v 
+Crystal Lake<->Hood<-------->Library 
+               ^             ^ 
+               |             | 
+               v             v 
+Westgate<----->Train<------->Washington<->Riverside 
+               |             ^ 
+               |             | 
+               v             v 
+               Boston        River 
+                             ^ 
+                             | 
+                             v 
+                             Church 
+                             ^ 
+                             | 
+                             v 
+                             Bradford 
+                             ^ 
+                             | 
+                             Lawrence 
+</code></pre>
+    </td>
+  </tr>
+</table>
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 2026*  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Haverhill*  
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sonya  
+
+Sonya, I met her in  
+Holy Family Hospital of Haverhill.  
+She still arouses me to this day.  
+She is aging youth with cosmic  
+green eyes and a smoldering  
+chalky voice.  
+&nbsp;  
+She walks by the lottomart on her  
+right. She's down in the foothills  
+down from the Hood. Behind that  
+lottomart, a river rolls down an  
+industrail waterfall.  
+&nbsp;  
+To her left, in Lafeyette Square,  
+the statue: cavalry.  
+&nbsp;  
+Crossing the street.  
+CVS: left.  
+barbershop: behind.  
+laundry mat: right.  
+gas station: ahead.  
+&nbsp;  
+She walks into the gas station for  
+a drink and a bottle of lighter  
+fluid.  
+&nbsp;  
+She crosses the street, CVS ahead.  
+takes a right uphill, closing in  
+&nbsp; on the Hood.  
+wraps around left, up another hill,  
+&nbsp; a church on left.  
+gets to Swasey Feild.  
+walks the feild edge, ballparks on  
+&nbsp; left.  
+climbs up a fortyfive degree  
+&nbsp; inclinehill, grass and dirt.  
+enters the wood.  
+finds the voodoo treealtar a man  
+&nbsp; brought her to last night to rape  
+&nbsp; her at.  
+he failed.  
+she sets flame aloft to climbfly  
+&nbsp; like a dragon up the treealtar.  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; New Haven*  
+
+#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Boogie  
+
+Above, stone and metal hands  
+maintain the Union Station  
+ceiling they made.  
+&nbsp;  
+Ghost, Boogie, climbsthroughwindow  
+to enter through the ceiling where  
+the busy hands are not. Standing  
+upright, he rides into the inside  
+of the ceiling like he's on an  
+airport conveyor belt that delivers  
+him straight onto the floor.  
+&nbsp;  
+He walksby people without bumping  
+into those who already can't sense  
+his existence. He exits  
+Union Station and walks away down  
+the sidewalks to the Green. He goes  
+right to pass the Library on his  
+right. A right on College Street  
+brings him past Yale campus  
+buildings. A left into Yale brings  
+him on a stonepath to an  
+intersection where academic  
+bookpower towers supreme on all  
+the inner workings of each walking  
+student.  
+&nbsp;  
+He walks past the dug out understage  
+up against Yale's Holocaust Exhibit.  
+The Exhibit guts out the perimeter  
+floorspace for the first floor to  
+have an outdoors stonepatio space  
+with a ceiling. The warm windows  
+house forbidden books which form a  
+tower Library:  
+&nbsp;&nbsp;&nbsp;  a small block: an intersection  
+&nbsp;&nbsp;&nbsp;  across a few lanes in a Library:  
+&nbsp;&nbsp;&nbsp;  with many floors booking more  
+&nbsp;&nbsp;&nbsp;  upward.  
+&nbsp;  
+He looks around the low activity  
+nighttime and finds no eyes walking.  
+He grabs ahold of the doorhandle. A  
+river of frequency is sent from his  
+hand into the handle, through the  
+metal platting, into the lock with  
+minimal frequency lost along the way  
+to unlock the door. He walks in and  
+the door claps shut.  
+&nbsp;  
+He gets past glassdoors to the inner  
+elevator and works it on to bring him  
+up floors as he pleases. He studies.  
+&nbsp;  
+Nick has too much craft done in  
+nonmaterial feilds. What Nick knows  
+not will be made to offset his  
+presence.  
+&nbsp;  
+Boogie begins.  
+&nbsp;  
+What Boogie will find out because of  
+these DAMN. mindreaders that watch me  
+dot the top of each handwritten k  
+since Lock Street Nashua New Hampshire  
+July 2022:  
+&nbsp;&nbsp;&nbsp;  word = currency.  
+&nbsp;&nbsp;&nbsp;  my ghostcoins increment per spoken,  
+&nbsp;&nbsp;&nbsp;&nbsp;   written, thinking, and typing word.  
+&nbsp;&nbsp;&nbsp;  my dice dump of all ghostcoin by  
+&nbsp;&nbsp;&nbsp;&nbsp;   bombing it, even by Farkle's  
+&nbsp;&nbsp;&nbsp;&nbsp;   ruleset, is in Jersey City Hood  
+&nbsp;&nbsp;&nbsp;&nbsp;   that climbs footbound uphills to  
+&nbsp;&nbsp;&nbsp;&nbsp;   the Washington Bridge.  
+
+*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; New England*  
 
