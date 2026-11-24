@@ -1326,7 +1326,7 @@ charges. The rain initializes that
 definition of a kill before my 
 stitches walk past that city: like 
 every city: wants war: not winners: 
-wants losers. I work by Yale next. 
+wants losers. I survive by Yale next. 
 
            ----- 
            Irish: Part 4 of 9 
