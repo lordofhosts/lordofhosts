@@ -509,7 +509,7 @@ a coffee is rum.
 
 By recalling the Lord's past  
 dealings, by smoke offering, I  
-offer these words as my oath to  
+offer these words as my oath under  
 the Lord:  
 &nbsp;  
 Be slow, simple, and steadfast.  
@@ -1554,7 +1554,7 @@ to everybody else instead.
 &nbsp;&nbsp;&nbsp;  Now, Lord, apply this System or Better  
 &nbsp;&nbsp;&nbsp;  to: Trap and Stop: mindreaders: so they  
 &nbsp;&nbsp;&nbsp;  leave me alone. As You walk away,  
-&nbsp;&nbsp;&nbsp;  Lord, recall my oath to You: slow,  
+&nbsp;&nbsp;&nbsp;  Lord, recall my oath under You: slow,  
 &nbsp;&nbsp;&nbsp;  simple, steadfast. Add another:  
 &nbsp;&nbsp;&nbsp;  singular. All four I dedicate for Her.  
 &nbsp;&nbsp;&nbsp;  As this book continues, I get my  
