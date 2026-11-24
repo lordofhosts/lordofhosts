@@ -2255,12 +2255,12 @@ since Lock Street Nashua New Hampshire
 July 2022:  
 &nbsp;&nbsp;&nbsp;  word = currency.  
 &nbsp;&nbsp;&nbsp;  my ghostcoins increment per spoken,  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   written, thinking, and typing word.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   written, thinking, and typing word.  
 &nbsp;&nbsp;&nbsp;  my dice dump of all ghostcoin by  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   bombing it, even by Farkle's  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   ruleset, is in Jersey City Hood  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   that climbs footbound uphills to  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   the Washington Bridge.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   bombing it, even by Farkle's  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   ruleset, is in Jersey City Hood  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   that climbs footbound uphills to  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   the Washington Bridge.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
 
