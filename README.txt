@@ -509,7 +509,7 @@ a coffee is rum.
 
 By recalling the Lord's past 
 dealings, by smoke offering, I 
-offer these words as my oath to 
+offer these words as my oath under 
 the Lord: 
 
 Be slow, simple, and steadfast. 
