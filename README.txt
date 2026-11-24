@@ -245,7 +245,7 @@ Park: scattered wooden tables, rocky
       spotlights. 
 
 The overhanging traintracks in 
-this towncity makes me feel the 
+this towncity make me feel the 
 same construction happened here, 
 Norwalk, as my Hometown, Haverhill, 
 where the train runs from Boston. 
