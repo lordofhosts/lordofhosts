@@ -1105,7 +1105,7 @@ because at the end: I get a sugarshot
 from all the sugar that bottomfeeds  
 the cup.  
 &nbsp;  
-I'm back at the Park, puffing Purple.  
+I'm back at the Park, puffing purple.  
 Where's the most intense position for  
 my energy?  
 
