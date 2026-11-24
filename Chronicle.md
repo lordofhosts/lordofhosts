@@ -539,7 +539,8 @@ of one Indiawoman.
 The police here don't play street  
 theatre fair. They join the  
 stageact. Music and smoke in the  
-back.  
+back, cuffed up: get from the copcar  
+to the nursevan.  
 &nbsp;  
 Three water bottles are filled  
 with sinkwater.  
