@@ -2253,10 +2253,11 @@ maintain the Union Station
 ceiling they made. 
 
 Ghost, Boogie, climbsthroughwindow 
-to enter through the ceiling where 
-the busy hands are not. Standing 
-upright, he rides into the inside 
-of the ceiling like he's on an 
+between the inside and outside of 
+the roofing--where the busy hands 
+are not. At the threshold of inside 
+the building, he stands upright and 
+rides into the place like he's on an 
 airport conveyor belt that delivers 
 him straight onto the floor. 
 
