@@ -1920,7 +1920,7 @@ the Chess by Chippy. the Wis
 the Groups downstairs. the 
  TV Room for free. 
 clothes and food and pills is money. 
-rooms are stores, my pad is laboratory. 
+rooms are stores. my pad is laboratory. 
 
                               Tuesday 
 
