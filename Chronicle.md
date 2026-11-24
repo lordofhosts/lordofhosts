@@ -1209,7 +1209,7 @@ I read:
 &nbsp;&nbsp;&nbsp;  sinner by attempted murder,  
 &nbsp;&nbsp;&nbsp;  motivated by a source that cannot  
 &nbsp;&nbsp;&nbsp;  be cross examined well by anyone  
-&nbsp;&nbsp;&nbsp;  else. Therefore, such a motive,  
+&nbsp;&nbsp;&nbsp;  else--so such a motive,  
 &nbsp;&nbsp;&nbsp;  the Lord, fails to get respect.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Harmony: Part 3 of 9</ins>  
