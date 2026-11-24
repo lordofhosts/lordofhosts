@@ -1141,7 +1141,7 @@ because at the end: I get a sugarshot
 from all the sugar that bottomfeeds 
 the cup. 
 
-I'm back at the Park, puffing Purple. 
+I'm back at the Park, puffing purple. 
 Where's the most intense position for 
 my energy? 
 
@@ -1937,10 +1937,10 @@ follow the bricksnake down to
  the stone stage. 
 as you approach, beware of 
  words from old age. 
-I walk the riverface to 
- perform for the water. 
 docked on each deck, my 
  memories are guardians are watchers. 
+I walk the riverface to 
+ perform for the water. 
 the river trains its tracks 
  to face obstacles without turning back. 
 the fog shows not to act 
@@ -1948,7 +1948,7 @@ the fog shows not to act
 my ears pilot invisible 
  water. the river also rises. 
 smoke in front of this highness. 
- your thumb triggers the lighter's pilot. 
+ your thumb sparks the lighter's pilot. 
 
                               Tuesday 
 
