@@ -1612,7 +1612,7 @@ to everybody else instead.
   leave me alone. As You walk away, 
   Lord, recall my oath to You: slow, 
   simple, steadfast. Add another: 
-  singular. All four I dedicate to Her. 
+  singular. All four I dedicate for Her. 
   As this book continues, I get my 
   Moonroom. 
 
