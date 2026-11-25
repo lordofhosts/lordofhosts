@@ -90,26 +90,28 @@ walkinghead: to the ground.
   <tr>
     <td>
 <pre><code>
-
-
-                         Bus Stop->East--->New Haven 
-                         ^ 
-                         |
-               Dunkins<--Library->Church 
-                         ^
-               Hospital  | 
-               ^         | 
-               |         | 
-New York City<-One<------| 
-                         v 
-               Tree<-----West     
-                         ^        River 
-                         |        ^ 
-                         v        | 
-               Park<-----Main---->Washington 
-                         ^ 
-                         | 
-                         Hood 
+..                                                    .. 
+..                                                    .. 
+                           Bus Stop->East--->New Haven 
+                           ^ 
+                           |
+                 Dunkins<--Library->Church 
+                           ^
+                 Hospital  | 
+                 ^         | 
+                 |         | 
+  New York City<-One<------| 
+                           v 
+                 Tree<-----West     
+                           ^        River 
+                           |        ^ 
+                           v        | 
+                 Park<-----Main---->Washington 
+                           ^ 
+                           | 
+                           Hood 
+..                                                    .. 
+..                                                    .. 
 </code></pre>
     </td>
   </tr>
@@ -2035,23 +2037,25 @@ can't you hear the silence:
   <tr>
     <td>
 <pre><code>
-
-
-           Grand   Boston 
-           |       ^ 
-           |       | 
-           |------>Union Station 
-           | 
-Witchshop<-|------>Church 
-           v 
-Library<---Green----------->College->One->Norwalk 
-           ^                ^ 
-Yale<------|                | 
-           v                v 
-           York--->Theatre->Books 
-           ^                ^ 
-           |                | 
-           Center           Hood 
+..                                                    .. 
+..                                                    .. 
+             Grand   Boston 
+             |       ^ 
+             |       | 
+             |------>Union Station 
+             | 
+  Witchshop<-|------>Church 
+             v 
+  Library<---Green----------->College->One->Norwalk 
+             ^                ^ 
+  Yale<------|                | 
+             v                v 
+             York--->Theatre->Books 
+             ^                ^ 
+             |                | 
+             Center           Hood 
+..                                                    .. 
+..                                                    .. 
 </code></pre>
     </td>
   </tr>
@@ -2067,25 +2071,27 @@ Yale<------|                |
   <tr>
     <td>
 <pre><code>
-
-
-Forest Hills<->Orange----->North Station->Haverhill 
-               ^ 
-               | 
-               v 
-Washington<----Boston Medical Center 
-               ^ 
-               | 
-Hope House<----Mass & Cass 
-               ^ 
-               | 
-Weedshop<------South Bay 
-               ^ 
-               | 
-               Andrew----->South Station 
-               |           | 
-               v           v 
-               Beach       New Haven 
+..                                                    .. 
+..                                                    .. 
+  Forest Hills<->Orange----->North Station->Haverhill 
+                 ^ 
+                 | 
+                 v 
+  Washington<----Boston Medical Center 
+                 ^ 
+                 | 
+  Hope House<----Mass & Cass 
+                 ^ 
+                 | 
+  Weedshop<------South Bay 
+                 ^ 
+                 | 
+                 Andrew----->South Station 
+                 |           | 
+                 v           v 
+                 Beach       New Haven 
+..                                                  .. 
+..                                                  .. 
 </code></pre>
     </td>
   </tr>
@@ -2101,40 +2107,42 @@ Weedshop<------South Bay
   <tr>
     <td>
 <pre><code>
-
-
-               Plaistow 
-               ^ 
-               | 
-               v
-               Little River 
-               ^ 
-               | 
-               v
-               Aves<-------->Webster<---->Castle 
-               ^             ^ 
-               |             | 
-               v             v 
-Crystal Lake<->Hood<-------->Library 
-               ^             ^ 
-               |             | 
-               v             v 
-Westgate<----->Train<------->Washington<->Riverside 
-               |             ^ 
-               |             | 
-               v             v 
-               Boston        River 
-                             ^ 
-                             | 
-                             v 
-                             Church 
-                             ^ 
-                             | 
-                             v 
-                             Bradford 
-                             ^ 
-                             | 
-                             Lawrence 
+..                                                    .. 
+..                                                    .. 
+                 Plaistow 
+                 ^ 
+                 | 
+                 v
+                 Little River 
+                 ^ 
+                 | 
+                 v
+                 Aves<-------->Webster<---->Castle 
+                 ^             ^ 
+                 |             | 
+                 v             v 
+  Crystal Lake<->Hood<-------->Library 
+                 ^             ^ 
+                 |             | 
+                 v             v 
+  Westgate<----->Train<------->Washington<->Riverside 
+                 |             ^ 
+                 |             | 
+                 v             v 
+                 Boston        River 
+                               ^ 
+                               | 
+                               v 
+                               Church 
+                               ^ 
+                               | 
+                               v 
+                               Bradford 
+                               ^ 
+                               | 
+                               Lawrence 
+..                                                    .. 
+..                                                    .. 
 </code></pre>
     </td>
   </tr>
