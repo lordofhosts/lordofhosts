@@ -1385,8 +1385,8 @@ LoGiC the rapper is my
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;                   for God.  
 &nbsp;  
 I don't just cut deals for a ward  
-from the Lord, I hustle high values  
-to get my Moonroom too.  
+from the Lord, I hustle to get my  
+Moonroom too.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Address: Part 7 of 9</ins>  
 
