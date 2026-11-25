@@ -347,7 +347,7 @@ Her.
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Lucifer  
 
 After Bridgewater State Hospital, I  
-felt the Black Death: the redactions:  
+felt the black death: the redactions:  
 the infection on: my resume, my  
 trackrecord, my background. My laurels  
 dishonored.  
