@@ -1686,7 +1686,7 @@ I wrote a book before this one: Fleet.
 I accomplished it while traveling from  
 Maryland to New Jerey. It attracted  
 mindreaders. I've never been bombed  
-interanlly. The book was of my Bookship,  
+internally. The book was of my Bookship,  
 not my Moonship I have under the Lord.  
 The goal was to establish a fleet of  
 bookships, of people, like mine so that  
