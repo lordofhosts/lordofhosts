@@ -1262,11 +1262,11 @@ wishes to serve bill's wishes:
 &nbsp;&nbsp;&nbsp;  Feeds events of people and things  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   to those cursed to walk at least  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   one place.  
-&nbsp;&nbsp;&nbsp;  This, me, Poet, Engineer: demands:  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   the knife to the throat of Apollo  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   by the sober hands of his brother,  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   Dionysus, until Apollo speaks the  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   word "ghost" to pivot harmony.  
+&nbsp;&nbsp;&nbsp;  This, me, Poet, Engineer: compels the  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   Fates to have a knife to the throat  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   of Apollo by the sober hands of his  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   brother, Dionysus, until Apollo speaks  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   the word "ghost" to pivot harmony.  
 &nbsp;  
 I charge back to Philly.  
 &nbsp;  
