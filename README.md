@@ -366,12 +366,12 @@ the personbody.
 &nbsp;  
 I footwork: Boston, Newport,  
 New Haven, Boston, Springfield,  
-Hartford, Poughkeepsie, Newark,  
-Wilmington, Newark, Springfield,  
-Boston, Providence, New Haven,  
-New York City, Philadelphia,  
-Baltimore, Philadelphia,  
-New York City, Norwalk.  
+Hartford, Danbury, Poughkeepsie,  
+Newark, Wilmington, Newark,  
+Springfield, Boston, Providence,  
+New Haven, New York City,  
+Philadelphia, Baltimore,  
+Philadelphia, New York City, Norwalk.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
 
