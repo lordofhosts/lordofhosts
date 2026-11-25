@@ -1460,7 +1460,7 @@ Dear Lord,
 &nbsp;&nbsp;&nbsp;  Dionysus.  
 &nbsp;  
 &nbsp;&nbsp;&nbsp;  This Trap You're in, Lord, is the  
-&nbsp;&nbsp;&nbsp;  Altar, and blood has not been thrown  
+&nbsp;&nbsp;&nbsp;  Altar, and blood has not been tossed  
 &nbsp;&nbsp;&nbsp;  on the Sides. A homeplate of seven  
 &nbsp;&nbsp;&nbsp;  candles before You. Of which, I  
 &nbsp;&nbsp;&nbsp;  choose one at the expense of six:  
