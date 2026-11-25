@@ -1510,7 +1510,7 @@ Dear Lord,
 
 Fuck!  
 I need to land.  
-This turbulance will end my Moonship.  
+This turbulence will end my Moonship.  
 Okay.  
 Deathbound Lord.  
 Directly involve another man, LoGiC,  
