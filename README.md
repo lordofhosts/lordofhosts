@@ -995,7 +995,7 @@ go. I switch bags curbside.
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Center  
 
 I stop by the Center for a foodbag  
-so I can work on my witchcraft spells  
+so I can work on my witchcraft notes  
 in the Library, instead of going  
 through SONO to: grab a meal from  
 the kitchen in the Hood.  
