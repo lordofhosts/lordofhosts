@@ -174,8 +174,8 @@ life: as a cloud: sprouting.
 The windways roll between clouds  
 like bowling balls in lanes. I  
 hear the smacking of the wind  
-thud to my eardrum and airdrums,  
-above.  
+thud into my eardrum and the  
+airdrums above.  
 &nbsp;  
 Above is the only direction. It  
 is the direction of space.  
