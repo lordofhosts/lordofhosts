@@ -2142,7 +2142,7 @@ Forest Hills<->Orange----->North Station->Haverhill
 Hood<----------BMC 
                ^ 
                | 
-Hope House<----Mass&Cass 
+Hope House<----Mass & Cass 
                ^ 
                | 
 Weedshop<------South Bay 
