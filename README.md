@@ -1956,8 +1956,8 @@ tinkering star, ar, ars:
 &nbsp;&nbsp;&nbsp;   collecting that Love of ours  
 &nbsp;&nbsp;&nbsp;   into those jars of hearts.  
 you're gonna' catch a cold, old  
-with the NICE  
-inside of your soul, oul, oul.  
+with the mice  
+beside your soul, oul, oul.  
 don't come back to me.  
 who do you think you are?  
 
