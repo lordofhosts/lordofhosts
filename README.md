@@ -90,6 +90,8 @@ walkinghead: to the ground.
   <tr>
     <td>
 <pre><code>
+
+
                          Bus Stop->East--->New Haven 
                          ^ 
                          |
@@ -2033,6 +2035,8 @@ can't you hear the silence:
   <tr>
     <td>
 <pre><code>
+
+
            Grand   Boston 
            |       ^ 
            |       | 
@@ -2063,6 +2067,8 @@ Yale<------|                |
   <tr>
     <td>
 <pre><code>
+
+
 Forest Hills<->Orange----->North Station->Haverhill 
                ^ 
                | 
@@ -2095,6 +2101,8 @@ Weedshop<------South Bay
   <tr>
     <td>
 <pre><code>
+
+
                Plaistow 
                ^ 
                | 
