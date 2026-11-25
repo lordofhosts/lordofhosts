@@ -70,7 +70,7 @@ in Nick's struggle to live--with his
 pride that demands to feel to be the  
 presence of a statue: to count.  
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Settle: Part 4 of 4</ins>  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Settlement: Part 4 of 4</ins>  
 
 He sets his eyes on New Haven. His  
 Moonroom is made of Ivory and  
