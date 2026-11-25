@@ -1451,7 +1451,7 @@ Dear Lord,
 &nbsp;&nbsp;&nbsp;  LoGiC. He gets diamonds as I get  
 &nbsp;&nbsp;&nbsp;  my Moonroom. That is the second  
 &nbsp;&nbsp;&nbsp;  movement by King Solomon: to cut  
-&nbsp;&nbsp;&nbsp;  deals for others to share bounty.  
+&nbsp;&nbsp;&nbsp;  deals to share bounty with others.  
 &nbsp;  
 &nbsp;&nbsp;&nbsp;  Finally, for You Lord, not a house  
 &nbsp;&nbsp;&nbsp;  from King Solomon, his third  
