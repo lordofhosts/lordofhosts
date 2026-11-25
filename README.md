@@ -2158,7 +2158,7 @@ can't you hear the silence:
 Sonya, I met her in  
 Holy Family Hospital of Haverhill.  
 She still arouses me to this day.  
-She is aging youth with cosmic  
+She is aged youth with cosmic  
 green eyes and a smoldering  
 chalky voice.  
 &nbsp;  
