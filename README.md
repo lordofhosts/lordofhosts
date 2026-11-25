@@ -804,7 +804,8 @@ and nest in my jacket.
 
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Leviticus  
 
-We can make modern use of Leviticus.  
+We can make affordable use of  
+Leviticus.  
 &nbsp;  
 The first law from the Lord lists  
 the order of operations to perform a  
