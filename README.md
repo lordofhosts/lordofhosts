@@ -2251,9 +2251,9 @@ presence.
 Boogie begins.  
 &nbsp;  
 What Boogie will find out because of  
-these mindreaders that watch me  
-dot the top of each handwritten k  
-since Lock Street Nashua New Hampshire  
+these mindreaders that watch me dot  
+the top of each handwritten k--since  
+Lock Street Nashua New Hampshire  
 July 2022:  
 &nbsp;&nbsp;&nbsp;  word = currency.  
 &nbsp;&nbsp;&nbsp;  my ghostcoins increment per spoken,  
