@@ -834,7 +834,7 @@ Visualize Seven Movements:
 
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Chronicles  
 
-We can use the first few stories of  
+We can use the first stories of  
 David up until the Lord graces David  
 that a house will be made for him by  
 Himself, and the last ones of Hezekiah  
