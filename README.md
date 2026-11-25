@@ -42,7 +42,7 @@ living conditions.
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Assault: Part 2 of 5</ins>  
 
-One day, his hands make use of  
+One day, his arm makes use of  
 aggression: his next gates: his  
 indignation paid the gatekeeper well  
 for him then to fall from grace so  
