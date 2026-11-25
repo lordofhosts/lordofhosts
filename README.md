@@ -2150,7 +2150,7 @@ can't you hear the silence:
 
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sonya  
 
-Sonya, I met her in  
+Sonya. I met her in  
 Holy Family Hospital of Haverhill.  
 She still arouses me to this day.  
 She is aged youth with cosmic  
