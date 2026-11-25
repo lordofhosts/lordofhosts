@@ -331,7 +331,7 @@ There is a loveblend: a potion: a
 book, a poet, a witch.  
 &nbsp;  
 I write until ink is cursed: any  
-strike of a pen: mints a page into  
+strike of my pen: mints a page into  
 lottery: for prophecy.  
 &nbsp;  
 I group words and things and my  
