@@ -441,7 +441,7 @@ Dunkins.
 Sunday has ten in the morning Roman  
 Catholic Mass.  
 &nbsp;  
-The Bible is alongside my fellows  
+The Bible is alongside my friends  
 Edgar Allan Poe and Emily Dickinson.  
 &nbsp;  
 I cannot create for a skeptic: an  
