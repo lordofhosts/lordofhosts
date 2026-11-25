@@ -219,7 +219,7 @@ my beard grows obtuse like
 &nbsp; a king.  
 cracks and lines carve into  
 &nbsp; my skin.  
-a fat nose sniffs secrets  
+my fat nose sniffs secrets  
 &nbsp; from the air,  
 my chest blooms upright  
 &nbsp; like a lion and a grin.  
