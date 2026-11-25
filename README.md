@@ -83,7 +83,7 @@ walkinghead: to the ground.
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Moonchild: Part 5 of 5</ins>  
 
 The words listened by, also spoken or  
-sung by the Poet: Nick: rewrite Nick's  
+sung by, the Poet: Nick: rewrite Nick's  
 destiny until the terms are met:  
 &nbsp;  
 &nbsp; Hey, Mr. Rager, Mr. Rager  
