@@ -3,7 +3,7 @@
            CHRONICLE 
 
            ----- 
-           Job: Part 1 of 4 
+           Job: Part 1 of 5 
            ----- 
 
 Poet, Nick, and first-rate engineer 
@@ -43,7 +43,7 @@ over places to spot his optimal
 living conditions. 
 
            ----- 
-           Assault: Part 2 of 4 
+           Assault: Part 2 of 5 
            ----- 
 
 One day, his hands make use of 
@@ -54,7 +54,7 @@ that he may live his days to
 reinvent his face place to place. 
 
            ----- 
-           Walk: Part 3 of 4 
+           Walk: Part 3 of 5 
            ----- 
 
 His rockbottom: walk the 
@@ -77,7 +77,7 @@ pride that demands to feel to be the
 presence of a statue: to count. 
 
            ----- 
-           Settlement: Part 4 of 4 
+           Settlement: Part 4 of 5 
            ----- 
 
 He sets his eyes on New Haven. His 
@@ -88,36 +88,9 @@ He will walk these lands that
 best look back up at him with his 
 walkinghead: to the ground. 
 
-                              Age 33 
-
-                              New England 
-
-           Norwalk 
-
-                         Bus Stop->East--->New Haven
-                         ^ 
-                         |
-               Dunkins<--Library->Church 
-                         ^
-               Hospital  | 
-               ^         | 
-               |         | 
-New York City<-One<------| 
-                         v 
-               Tree<-----West     
-                         ^        River 
-                         |        ^ 
-                         v        | 
-               Park<-----Main---->Washington 
-                         ^ 
-                         | 
-                         Hood 
-
-                              2026 
-
-                              Library 
-
-           Moonchild 
+           ----- 
+           Moonchild: Part 5 of 5 
+           ----- 
 
 The words listened by, and spoken or 
 sung by the Poet: Nick: rewrite Nick's 
@@ -149,7 +122,32 @@ destiny until the terms are met:
   When will the heaven begin? Yeah 
   Woah now 
 
-                              Saturday 
+                              Age 33 
+
+                              New England 
+
+           Norwalk 
+
+                         Bus Stop->East--->New Haven
+                         ^ 
+                         |
+               Dunkins<--Library->Church 
+                         ^
+               Hospital  | 
+               ^         | 
+               |         | 
+New York City<-One<------| 
+                         v 
+               Tree<-----West     
+                         ^        River 
+                         |        ^ 
+                         v        | 
+               Park<-----Main---->Washington 
+                         ^ 
+                         | 
+                         Hood 
+
+                              2026 
 
                               Norwalk 
 
