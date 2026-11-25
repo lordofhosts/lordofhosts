@@ -45,7 +45,7 @@ living conditions.
 One day, his hands make use of  
 aggression: his next gates: his  
 indignation paid the gatekeeper well  
-for him to then fall from grace so  
+for him then to fall from grace so  
 that he may live his days to  
 reinvent his face place to place.  
 
