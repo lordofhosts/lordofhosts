@@ -48,6 +48,32 @@ indignation paid the gatekeeper well
 for him then to fall from grace so  
 that he may live his days to  
 reinvent his face place to place.  
+&nbsp;  
+That day, the way he entered the place  
+was wrong. He has honors from that  
+place. That day, there were two  
+others with honors from that place as  
+well. That day, the place should not  
+have been open to any one or two or  
+three with honors from that place.  
+That place can only be used properly  
+when ten or more with honors are  
+there. That day, he found the place  
+left behind, disrespected, by whoever  
+was walking those floors last. The way  
+he passed through those floors, he left  
+the place in its respectful shape. The  
+way he left that place was silent, but  
+one of the two there spotted him and  
+hounded him outdoors. Outside, a place  
+everyone struggles to earn honors from,  
+he put the hound down after the hound  
+kept disrespecting him when his honors  
+from the place was shared. One elbow  
+to the hound's head earned the police  
+and courtroom pictures which he still  
+has yet to see--that go beyond one  
+forbidden strike.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Walk: Part 3 of 5</ins>  
 
