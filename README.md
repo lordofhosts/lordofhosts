@@ -198,7 +198,7 @@ She drives me. We Love. We are in
 a Relationship.  
 &nbsp;  
 The park table is organized with  
-three books, smokes, and a couple  
+three books, smokes, and a few  
 snacks. All my possessions come  
 to me freely.  
 
