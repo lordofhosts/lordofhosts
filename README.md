@@ -1819,7 +1819,7 @@ the whitevan treads the
 &nbsp; heartlessland of Mass & Cass.  
 a needle wabbles in a walker's  
 &nbsp; arm.  
-around onehundred: attacked: sicked:  
+around: onehundred: attacked: sicked:  
 &nbsp; addicts: rumage beside traffic.  
 Hope House is one block away nested  
 &nbsp; between a waste facility, bus  
