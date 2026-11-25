@@ -1112,7 +1112,7 @@ my energy?
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Closure: Part 2 of 2</ins>  
 
 Baltimore. Deathparty. I kept death  
-rattling: my devil voice: that makes  
+rattling. My devil voice: that makes  
 dogs bitch silent or barkback well.  
 Meanwhile the crows follow me up well.  
 &nbsp;  
