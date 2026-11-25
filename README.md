@@ -563,7 +563,7 @@ Leviticus.
 &nbsp;  
 Next to David tends to be Asaph.  
 &nbsp;  
-My lecture notes are finished.  
+My ritual notes are finished.  
 &nbsp;  
 I head out on the road to rehearse.  
 &nbsp;  
