@@ -2,7 +2,7 @@
 
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; CHRONICLE  
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Job: Part 1 of 4</ins>  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Job: Part 1 of 5</ins>  
 
 Poet, Nick, and first-rate engineer  
 is cornered into the confusion of  
@@ -40,7 +40,7 @@ Nick's engineerhead wants to tower
 over places to spot his optimal  
 living conditions.  
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Assault: Part 2 of 4</ins>  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Assault: Part 2 of 5</ins>  
 
 One day, his hands make use of  
 aggression: his next gates: his  
@@ -49,7 +49,7 @@ for him then to fall from grace so
 that he may live his days to  
 reinvent his face place to place.  
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Walk: Part 3 of 4</ins>  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Walk: Part 3 of 5</ins>  
 
 His rockbottom: walk the  
 groundfloor. Travel or die. Travel  
@@ -70,7 +70,7 @@ in Nick's struggle to live--with his
 pride that demands to feel to be the  
 presence of a statue: to count.  
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Settlement: Part 4 of 4</ins>  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Settlement: Part 4 of 5</ins>  
 
 He sets his eyes on New Haven. His  
 Moonroom is made of Ivory and  
@@ -79,6 +79,38 @@ banners from books to bookies.
 He will walk these lands that  
 best look back up at him with his  
 walkinghead: to the ground.  
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Moonchild: Part 5 of 5</ins>  
+
+The words listened by, and spoken or  
+sung by the Poet: Nick: rewrite Nick's  
+destiny until the terms are met:  
+&nbsp;  
+&nbsp; Hey, Mr. Rager, Mr. Rager  
+&nbsp; Tell me where you're goin', tell us  
+&nbsp;&nbsp;&nbsp; where you're headed  
+&nbsp; (I'm off on the adventure) Mr. Rager  
+&nbsp; Tell me some of your stories, tell  
+&nbsp;&nbsp;&nbsp; us of your travels  
+&nbsp; Hey, Mr. Rager, Mr. Rager  
+&nbsp; Tell me where you're goin', tell us  
+&nbsp;&nbsp;&nbsp; where you're headed  
+&nbsp; (I'm on my way to heaven) Mr. Rager  
+&nbsp; Can we tag along? Can we take the  
+&nbsp;&nbsp;&nbsp; journey?  
+&nbsp;  
+&nbsp; Knocked down round for round  
+&nbsp; You're feelin' like you're shot down  
+&nbsp;&nbsp;&nbsp; on the ground  
+&nbsp; When will the fantasy end?  
+&nbsp; When will the heaven begin? Yeah  
+&nbsp; You might be knocked down round for  
+&nbsp;&nbsp;&nbsp; round  
+&nbsp; You're feelin' like you're shot  
+&nbsp;&nbsp;&nbsp; down on the ground  
+&nbsp; When will the fantasy end? Yeah  
+&nbsp; When will the heaven begin? Yeah  
+&nbsp; Woah now  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Age 33*  
 
@@ -118,42 +150,6 @@ walkinghead: to the ground.
 </table>
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 2026*  
-
-*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Library*  
-
-#### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Moonchild  
-
-The words listened by, and spoken or  
-sung by the Poet: Nick: rewrite Nick's  
-destiny until the terms are met:  
-&nbsp;  
-&nbsp; Hey, Mr. Rager, Mr. Rager  
-&nbsp; Tell me where you're goin', tell us  
-&nbsp;&nbsp;&nbsp; where you're headed  
-&nbsp; (I'm off on the adventure) Mr. Rager  
-&nbsp; Tell me some of your stories, tell  
-&nbsp;&nbsp;&nbsp; us of your travels  
-&nbsp; Hey, Mr. Rager, Mr. Rager  
-&nbsp; Tell me where you're goin', tell us  
-&nbsp;&nbsp;&nbsp; where you're headed  
-&nbsp; (I'm on my way to heaven) Mr. Rager  
-&nbsp; Can we tag along? Can we take the  
-&nbsp;&nbsp;&nbsp; journey?  
-&nbsp;  
-&nbsp; Knocked down round for round  
-&nbsp; You're feelin' like you're shot down  
-&nbsp;&nbsp;&nbsp; on the ground  
-&nbsp; When will the fantasy end?  
-&nbsp; When will the heaven begin? Yeah  
-&nbsp; You might be knocked down round for  
-&nbsp;&nbsp;&nbsp; round  
-&nbsp; You're feelin' like you're shot  
-&nbsp;&nbsp;&nbsp; down on the ground  
-&nbsp; When will the fantasy end? Yeah  
-&nbsp; When will the heaven begin? Yeah  
-&nbsp; Woah now  
-
-*&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Saturday*  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Norwalk*  
 
