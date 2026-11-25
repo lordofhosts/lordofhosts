@@ -565,9 +565,8 @@ Next to David tends to be Asaph.
 &nbsp;  
 My ritual notes are finished.  
 &nbsp;  
-I head out on the road to rehearse.  
-&nbsp;  
-In the parkinglot: a man gifts me  
+I head out on the road. In the  
+parkinglot: a man gifts me  
 ten dollars!  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
