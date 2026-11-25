@@ -2063,11 +2063,11 @@ Yale<------|                |
   <tr>
     <td>
 <pre><code>
-Forest Hills<->Orange----->North Station->Haverhill  
+Forest Hills<->Orange----->North Station->Haverhill 
                ^ 
                | 
                v 
-Hood<----------BMC 
+Washington<----Boston Medical Center 
                ^ 
                | 
 Hope House<----Mass & Cass 
