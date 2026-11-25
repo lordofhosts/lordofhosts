@@ -262,14 +262,14 @@ grab wine from the bottomhill.
 walkthrough subway to Jackson Square,  
 walkdownhill to a raised concrete bed  
 &nbsp; of grass.  
-drink wine and grab hummus from  
+drink wine. and grab hummus from  
 &nbsp; supermart.  
 walkthrough subway to North Station,  
 &nbsp; and get passed.  
 eat hummus, drink wine, and browse  
 &nbsp; North Shore.  
 get off at Haverhill and go to  
-&nbsp; the traintrack's bridge weedshop.  
+&nbsp; the traintrack's bridge weedshop:  
 three drinks, and one eighth of  
 &nbsp; Granddaddy Purp, and Hip Hop.  
 a couple doors down: the barbershop,  
