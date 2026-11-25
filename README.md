@@ -1830,7 +1830,7 @@ Hope House is one block away nested
 &nbsp; between a waste facility, bus  
 &nbsp; terminal, and apartments.  
 their dining room lays out a dozen  
-&nbsp; tables, full kitchen all you can  
+&nbsp; tables, full kitchen, all you can  
 &nbsp; eat, and cake.  
 their maindesk swims in each passerby's  
 &nbsp; hustle: harmony.  
