@@ -776,7 +776,7 @@ Forage KiD CuDi in the Library by
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Break: Part 1 of 2</ins>  
 
 Beside the Chestnut gas station, I  
-pack the woodtip of a Black & Mild  
+pack the woodtip from a Black & Mild  
 with roachweed.  
 &nbsp;  
 Weed gives my headspace and  
