@@ -321,7 +321,7 @@ out of a brave youngman.
 I hear a keyword: a critical matter:  
 a tonechange: from a witch: who  
 farms in the Bridgewater Triangle.  
-I hand over myself like a pot of  
+I handover myself like a pot of  
 gold: like property ready for use:  
 to her, her voice, her positions,  
 her motions, my guesswork at her  
