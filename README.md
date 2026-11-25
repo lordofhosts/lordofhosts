@@ -2166,7 +2166,7 @@ She walks by the lottomart on her
 right. She's down in the foothills  
 down from the Hood. Behind that  
 lottomart, a river rolls down an  
-industrail waterfall.  
+industrial waterfall.  
 &nbsp;  
 To her left, in Lafeyette Square,  
 the statue: cavalry.  
