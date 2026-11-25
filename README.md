@@ -786,7 +786,7 @@ glow.
 My mind normally churns harsh  
 wordplay: like distilling crude oil  
 through pipelines and chambers to  
-reform it to lamp oil and jet fuel.  
+change it to lamp oil and jet fuel.  
 &nbsp;  
 I eat my Avocado Spicy Turkey from  
 Wegmans.  
