@@ -971,13 +971,14 @@ I leave the Hood, drop my Target bag
 near the Tree, and turn left at  
 Mathews Park.  
 &nbsp;  
-I got food supplies yesterday on  
-Route 1. Sinkwater already comes  
-from a few buildings. I still need  
-one more jacket to blanket my legs  
-at night. I'm grabbing a drawstring  
-bag from Dicks. I need winter socks:  
-I'll go to Kohl's for that.  
+I got food and writing supplies  
+yesterday on Route 1. Sinkwater  
+already comes from a few buildings. I  
+still need one more jacket to blanket  
+my legs at night. I'm grabbing a  
+drawstring bag from Dicks. I need  
+winter socks: I'll go to Kohl's for  
+that.  
 &nbsp;  
 There's two food banks to check: the  
 Center and one in the Hood. That  
