@@ -1548,7 +1548,7 @@ to everybody else instead.
 
 &nbsp;&nbsp;&nbsp;  Leave, Lord.  
 &nbsp;&nbsp;&nbsp;  We know my needs.  
-&nbsp;&nbsp;&nbsp;  I'm an exile.  
+&nbsp;&nbsp;&nbsp;  I'm an Exile.  
 &nbsp;  
 &nbsp;&nbsp;&nbsp;  Asaph sung too much, Lord. That's the  
 &nbsp;&nbsp;&nbsp;  gun pointed at Your Head. When You own  
