@@ -1611,7 +1611,7 @@ Spell:
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Moonfuel  
 
 the Lord is maker.  
-He respects one who goes to make  
+He respects one who works to make  
 &nbsp; Him make something for oneself.  
 perhaps, He will make said one:  
 &nbsp; something.  
