@@ -1170,8 +1170,8 @@ of that door.
 &nbsp;  
 Jim kicked the guy. Oddly, the guy  
 felt Jim granted him absent  
-permission to approach the acidstar  
-because silence enjoys the throne  
+permission to approach this acidstar  
+when silence enjoys the throne  
 atop stairs.  
 &nbsp;  
 I go outside to check on Jim. He's  
