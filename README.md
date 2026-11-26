@@ -789,7 +789,7 @@ First Communion bread stops my tongue.
 Ovid lays railwork from the past  
 &nbsp; for my eyes.  
 Dunkin Donuts is my study hall.  
-Forage KiD CuDi in the Library by  
+forage KiD CuDi in the Library by  
 &nbsp; my hands, ears, and eyes.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
