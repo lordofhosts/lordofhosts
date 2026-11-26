@@ -1169,9 +1169,9 @@ the stairs and crashes into the inside
 of that door.  
 &nbsp;  
 Jim kicked the guy. Oddly, the guy  
-felt Jim granted him absent  
-permission to approach this acidstar  
-when silence enjoys the throne  
+felt Jim granted him ungiven  
+permission to interrupt this acidstar  
+when that silence enjoys the throne  
 atop stairs.  
 &nbsp;  
 I go outside to check on Jim. He's  
