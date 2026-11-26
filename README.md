@@ -1080,7 +1080,7 @@ foodbank in the Hood, not only do I
 get a foodbag bigger than the one  
 from the Center, the lady tells me  
 that they have coats too! I end up  
-with a black furcoat jacket!  
+with a black furcollar jacket!  
 &nbsp;  
 I head back to the Tree. Early  
 nights maximize: warmtime, asleep.  
