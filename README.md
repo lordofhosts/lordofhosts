@@ -1447,7 +1447,8 @@ Dear Lord,
 &nbsp;&nbsp;&nbsp;  The same ambulance I saw just a  
 &nbsp;&nbsp;&nbsp;  couple hours ago from the bus. I  
 &nbsp;&nbsp;&nbsp;  look up: no feelings, gray sky:  
-&nbsp;&nbsp;&nbsp;  Kafka's Silver Sky:  
+&nbsp;&nbsp;&nbsp;  Kafka's Silver Sky in his:  
+&nbsp;&nbsp;&nbsp;  The Bucket Rider:  
 &nbsp;&nbsp;&nbsp;  that's a ward!  
 &nbsp;  
 &nbsp;&nbsp;&nbsp;  At the end of Under Pressure,  
