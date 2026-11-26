@@ -832,8 +832,7 @@ and nest in my jacket.
 
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Leviticus  
 
-We can make affordable use of  
-Leviticus.  
+I see affordable use of Leviticus.  
 &nbsp;  
 The first law from the Lord lists  
 the order of operations to perform a  
@@ -863,16 +862,16 @@ Visualize Seven Movements:
 
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Chronicles  
 
-We can use the first stories of  
-David up until the Lord graces David  
-that a house will be made for him by  
-Himself, and the last ones of Hezekiah  
-to: validate the first law of Leviticus.  
+I see the first stories of David up  
+until the Lord graces David that a  
+house will be made for him from the Lord,  
+and the last ones of Hezekiah to:  
+validate the first law of Leviticus.  
 &nbsp;  
 Chronicles is many years apart from  
 Moses receiving said first law.  
 &nbsp;  
-We have a series of successful trials  
+I see a series of successful trials  
 at the said start and end of  
 Chronicles.  
 &nbsp;  
