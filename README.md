@@ -1859,8 +1859,8 @@ Hope House is one block away nested
 their dining room lays out a dozen  
 &nbsp; tables, full kitchen, all you can  
 &nbsp; eat, and cake.  
-their maindesk swims in each passerby's  
-&nbsp; hustle: harmony.  
+their maindesk is a buoy in each  
+&nbsp; passerby's hustle: harmony.  
 drugs and drinks dance in the  
 &nbsp; recoverymind's schedule.  
 your best buddy walks with you  
