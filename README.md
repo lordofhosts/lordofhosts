@@ -2263,7 +2263,7 @@ up against Yale's Holocaust Exhibit.
 The Exhibit guts out the perimeter  
 of the first floor to have an outdoors  
 stonepatio space with a ceiling. The  
-warm windows house forbidden books  
+amber windows house forbidden books  
 which form a tower Library:  
 &nbsp;&nbsp;&nbsp;  a small block: an intersection  
 &nbsp;&nbsp;&nbsp;  across a few lanes in a Library:  
