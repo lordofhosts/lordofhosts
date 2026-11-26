@@ -1545,7 +1545,7 @@ Dear Lord,
 &nbsp;&nbsp;&nbsp;  where even a couple is not allowed.  
 &nbsp;&nbsp;&nbsp;  Lord, when there is no such thing as a  
 &nbsp;&nbsp;&nbsp;  couple, no such thing as a pair:  
-&nbsp;&nbsp;&nbsp;  prizes of birth, partnership, logic, and  
+&nbsp;&nbsp;&nbsp;  prizes of partnership, logic, and  
 &nbsp;&nbsp;&nbsp;  morals cannot even continue.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
