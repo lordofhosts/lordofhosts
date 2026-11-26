@@ -872,19 +872,19 @@ Chronicles is many years apart from
 Moses receiving said first law.  
 &nbsp;  
 I see a series of successful trials  
-at the said start and end of  
-Chronicles. That is the Lord honoring  
-His Law to Moses, hundreds of years  
-after Moses and those people, for  
-other living people.  
+from David and Hezekiah at the said  
+start and end of Chronicles. That is  
+the Lord honoring His Law to Moses,  
+hundreds of years after Moses and  
+those people, for other living people.  
 &nbsp;  
 The storyline after Hezekiah has  
 a series of failures from mistrials.  
 &nbsp;  
 A simple comparison between two piles  
-of good and bad: show: the first law is  
-bountiful when applied well, and  
-disastrous to misapply.  
+of good and bad: examples: show: the  
+first law is bountiful when applied  
+well, and disastrous to misapply.  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Sunday*  
 
