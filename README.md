@@ -1641,7 +1641,7 @@ Nick's tower to beat Nick.
 
 I have eyes.  
 you have eyes.  
-can we watch eachother?  
+can we read eachother?  
 no, mindreaders: no.  
 &nbsp;  
 I have rules.  
