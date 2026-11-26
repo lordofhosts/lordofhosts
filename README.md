@@ -2227,9 +2227,8 @@ she sets flame aloft to climbfly
 
 #### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Boogie  
 
-Above, stone and metal hands  
-maintain the Union Station  
-ceiling they made.  
+Above, hands maintain the  
+Union Station ceiling they made.  
 &nbsp;  
 Ghost, Boogie, climbsthroughwindow  
 between the inside and outside of  
