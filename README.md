@@ -1536,6 +1536,17 @@ Dear Lord,
 &nbsp;&nbsp;&nbsp;  Samuel, Chronicles, then Kings. A king  
 &nbsp;&nbsp;&nbsp;  is just one big deathparty under You,  
 &nbsp;&nbsp;&nbsp;  Lord.  
+&nbsp;  
+&nbsp;&nbsp;&nbsp;  As these mindreaders bully my attention 
+&nbsp;&nbsp;&nbsp;  away from Her, when I carefully 
+&nbsp;&nbsp;&nbsp;  sacrifice people, places, and things as 
+&nbsp;&nbsp;&nbsp;  my regular payments to keep a single 
+&nbsp;&nbsp;&nbsp;  pair: me and Her... when such disrespect 
+&nbsp;&nbsp;&nbsp;  by them persists, I reach a point where 
+&nbsp;&nbsp;&nbsp;  even a couple is not allowed anymore. 
+&nbsp;&nbsp;&nbsp;  Lord, when there is no such thing as a 
+&nbsp;&nbsp;&nbsp;  couple: the prizes of life, logic, and 
+&nbsp;&nbsp;&nbsp;  morals cannot even survive. 
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
 
