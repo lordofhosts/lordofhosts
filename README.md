@@ -1799,7 +1799,7 @@ sugarpackets, straw, notebook, pen,
 hands. Two! there's two Old Fashion  
 donuts.  
 &nbsp;  
-After the meal I walk over to the  
+After the meal, I walk over to the  
 Bus Stop so I can smoke weed without  
 any trouble.  
 
