@@ -1761,7 +1761,7 @@ the articulation between my ears:
 and the tendtotalk gay guys cloud  
 my workspace like smoke in my eye.  
 &nbsp;  
-On my peer's end, confusion,  
+On my peers' end, confusion,  
 grouping articulate person with  
 articulate person: bumps me into: gay  
 membership: I decline. I am serious  
