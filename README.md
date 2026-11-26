@@ -639,7 +639,7 @@ Ford will not touch the pen but
 tells of law that cannot be beat  
 because it is natural to hands.  
 &nbsp;  
-Thoreau shoves me off the road away  
+Thoreau pushes me off the road away  
 from symbol spinners: what of those  
 same stars in other fields without  
 these hill's problems?  
