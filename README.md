@@ -1855,7 +1855,7 @@ around: onehundred: attacked: sicked:
 &nbsp; addicts: rumage beside traffic.  
 Hope House is one block away nested  
 &nbsp; between a waste facility, bus  
-&nbsp; terminal, and apartments.  
+&nbsp; depot, and apartments.  
 their dining room lays out a dozen  
 &nbsp; tables, full kitchen, all you can  
 &nbsp; eat, and cake.  
