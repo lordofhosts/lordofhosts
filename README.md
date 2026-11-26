@@ -2005,7 +2005,7 @@ each time I speak aloud
 another part of my Moonroom  
 &nbsp; is made.  
 each time a spoken oath  
-&nbsp; word puts me in a new  
+&nbsp; word puts me in a different  
 &nbsp; emotional state:  
 my Moonroom collects  
 &nbsp; Moonglow.  
