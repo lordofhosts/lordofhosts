@@ -754,8 +754,8 @@ New York City is many more.
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Memory: Part 2 of 2</ins>  
 
-Roads like Route 1 are a breeze in my  
-memory of walking: from Elizabeth  
+Roads like Route 1 are a breeze compared  
+to my memory of walking: from Elizabeth  
 New Jersey: into New York City: watching  
 how Jersey City rises up to the  
 skyfaces in the hallways of business:  
