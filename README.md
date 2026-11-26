@@ -10,7 +10,7 @@ worklife. The clock not to watch, but
 be watched by, as it sees the worker  
 does not respect the workplace enough  
 for the work: the event. The  
-manager--not the clock--turns the lights,  
+manager&#8212;not the clock&#8212;turns the lights,  
 the respect, the event: on. The worker  
 does not clockin until the boss sees  
 the whites of the worker's eyes.  
@@ -72,7 +72,7 @@ kept disrespecting him when his honors
 from the place was shared. One elbow  
 to the hound's head earned the police  
 and courtroom pictures which he still  
-has yet to see--that go beyond one  
+has yet to see&#8212;that go beyond one  
 forbidden strike.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Walk: Part 3 of 5</ins>  
@@ -92,7 +92,7 @@ somehow survives.
 &nbsp;  
 The entire Northeast from Boston to  
 Baltimore, the places, all play a part  
-in Nick's struggle to live--with his  
+in Nick's struggle to live&#8212;with his  
 pride that demands to feel to be the  
 presence of a statue: to count.  
 
@@ -150,21 +150,21 @@ destiny until the terms are met:
 <pre><code>
 ..                                                    .. 
 ..                                                    .. 
-                           Bus Stop->East--->New Haven 
+                           Bus Stop->East&#8212;->New Haven 
                            ^ 
                            |
-                 Dunkins<--Library->Church 
+                 Dunkins<&#8212;Library->Church 
                            ^
                  Hospital  | 
                  ^         | 
                  |         | 
-  New York City<-One<------| 
+  New York City<-One<&#8212;&#8212;&#8212;| 
                            v 
-                 Tree<-----West     
+                 Tree<&#8212;&#8212;-West     
                            ^        River 
                            |        ^ 
                            v        | 
-                 Park<-----Main---->Washington 
+                 Park<&#8212;&#8212;-Main&#8212;&#8212;>Washington 
                            ^ 
                            | 
                            Hood 
@@ -1236,7 +1236,7 @@ I read:
 &nbsp;&nbsp;&nbsp;  sinner by attempted murder,  
 &nbsp;&nbsp;&nbsp;  motivated by a source that cannot  
 &nbsp;&nbsp;&nbsp;  be cross examined well by anyone  
-&nbsp;&nbsp;&nbsp;  else--so such a source,  
+&nbsp;&nbsp;&nbsp;  else&#8212;so such a source,  
 &nbsp;&nbsp;&nbsp;  the Lord, fails to get respect.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Harmony: Part 3 of 9</ins>  
@@ -2049,7 +2049,7 @@ caught in a pully system: walking.
 a trial is upon us.  
 do not try to disarm us.  
 can't you hear the silence:  
-&nbsp;&nbsp;&nbsp;  slipping away--  
+&nbsp;&nbsp;&nbsp;  slipping away&#8212;  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
 
@@ -2066,15 +2066,15 @@ can't you hear the silence:
              Grand   Boston 
              |       ^ 
              |       | 
-             |------>Union Station 
+             |&#8212;&#8212;&#8212;>Union Station 
              | 
-  Witchshop<-|------>Church 
+  Witchshop<-|&#8212;&#8212;&#8212;>Church 
              v 
-  Library<---Green----------->College->One->Norwalk 
+  Library<&#8212;-Green&#8212;&#8212;&#8212;&#8212;&#8212;->College->One->Norwalk 
              ^                ^ 
-  Yale<------|                | 
+  Yale<&#8212;&#8212;&#8212;|                | 
              v                v 
-             York--->Theatre->Books 
+             York&#8212;->Theatre->Books 
              ^                ^ 
              |                | 
              Center           Hood 
@@ -2097,20 +2097,20 @@ can't you hear the silence:
 <pre><code>
 ..                                                    .. 
 ..                                                    .. 
-  Forest Hills<->Orange----->North Station->Haverhill 
+  Forest Hills<->Orange&#8212;&#8212;->North Station->Haverhill 
                  ^ 
                  | 
                  v 
-  Washington<----Boston Medical Center 
+  Washington<&#8212;&#8212;Boston Medical Center 
                  ^ 
                  | 
-  Hope House<----Mass & Cass 
+  Hope House<&#8212;&#8212;Mass & Cass 
                  ^ 
                  | 
-  Weedshop<------South Bay 
+  Weedshop<&#8212;&#8212;&#8212;South Bay 
                  ^ 
                  | 
-                 Andrew----->South Station 
+                 Andrew&#8212;&#8212;->South Station 
                  |           | 
                  v           v 
                  Beach       New Haven 
@@ -2141,15 +2141,15 @@ can't you hear the silence:
                  ^ 
                  | 
                  v
-                 Aves<-------->Webster<---->Castle 
+                 Aves<&#8212;&#8212;&#8212;&#8212;>Webster<&#8212;&#8212;>Castle 
                  ^             ^ 
                  |             | 
                  v             v 
-  Crystal Lake<->Hood<-------->Library 
+  Crystal Lake<->Hood<&#8212;&#8212;&#8212;&#8212;>Library 
                  ^             ^ 
                  |             | 
                  v             v 
-  Westgate<----->Train<------->Washington<->Riverside 
+  Westgate<&#8212;&#8212;->Train<&#8212;&#8212;&#8212;->Washington<->Riverside 
                  |             ^ 
                  |             | 
                  v             v 
@@ -2232,7 +2232,7 @@ Union Station ceiling they made.
 &nbsp;  
 Ghost, Boogie, climbsthroughwindow  
 between the inside and outside of  
-the roofing--where the busy hands  
+the roofing&#8212;where the busy hands  
 are not. At the threshold of inside  
 the building, he stands upright and  
 rides into the place like he's on an  
@@ -2289,7 +2289,7 @@ Boogie begins.
 &nbsp;  
 What Boogie will find out because of  
 these mindreaders that watch me dot  
-the top of each handwritten k--since  
+the top of each handwritten k&#8212;since  
 Lock Street Nashua New Hampshire  
 July 2022:  
 &nbsp;&nbsp;&nbsp;  word = currency.  
