@@ -2244,7 +2244,7 @@ airport conveyor belt that delivers
 him straight onto the floor.  
 &nbsp;  
 He walksby people without bumping  
-into those who already can't sense  
+into any&#8212;who already can't sense  
 his existence. He exits  
 Union Station and walks away down  
 the sidewalks to the Green. He goes  
