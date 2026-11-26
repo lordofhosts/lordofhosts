@@ -873,7 +873,10 @@ Moses receiving said first law.
 &nbsp;  
 I see a series of successful trials  
 at the said start and end of  
-Chronicles.  
+Chronicles. That is the Lord honoring  
+His Law to Moses, hundreds of years  
+after Moses and those people, for  
+other living people.  
 &nbsp;  
 The storyline after Hezekiah has  
 a series of failures from mistrials.  
