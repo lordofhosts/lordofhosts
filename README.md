@@ -780,7 +780,7 @@ Trolli candy between my fingers.
 weed in my Camel pack is my fix.  
 Holy Bible journeys in my knapsack.  
 miles of dirt under my stony nails.  
-Ramen noodles give birth in a bottle.  
+Ramen noodles give birth in my bottle.  
 spoon in my garlic hummus never fails.  
 my legs hug a hilltree for lofty sleep.  
 my feet hold two steps of hood concrete,  
