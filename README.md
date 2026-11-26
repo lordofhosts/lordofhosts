@@ -2301,10 +2301,28 @@ July 2022:
 &nbsp;&nbsp;&nbsp;  my ghostcoins increment per spoken,  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   written, thinking, and typing word.  
 &nbsp;&nbsp;&nbsp;  my dice dump of all ghostcoin by  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   bombing it, even by Farkle's  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   ruleset, is in Jersey City Hood  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   that climbs footbound uphills to  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   the Washington Bridge.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  bombing it, even by Farkle's  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  ruleset, is in Jersey City Hood  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  that climbs footbound uphills to  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  the Washington Bridge.  
+&nbsp;  
+What Boogie won't learn in that tower  
+will be embossed into him:  
+&nbsp;&nbsp;&nbsp;  This is the Atlantic, I have  
+&nbsp;&nbsp;&nbsp;  walkbys on drivebys. Tell to yourself:  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  who satisfies what  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  when this who has been to where  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  each what reinforces how and why  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  each where continues:  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  1. Live Free Or Die  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  2. The Spirit Of America  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  3. The Ocean State  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  4. The Constitution State  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  5. The Empire State  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  6. The Garden State  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  7. The Land of Liberty  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  8. The First State  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  9. The War Of 1812  
 
 *&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuesday*  
 
