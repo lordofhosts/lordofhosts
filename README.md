@@ -9,11 +9,11 @@ is cornered into the confusion of
 worklife. The clock not to watch, but  
 be watched by, as it sees the worker  
 does not respect the workplace enough  
-for the work: the event. The manager  
-turns the lights, the respect, the  
-event: on. The worker does not clockin  
-until the boss sees the whites of the  
-worker's eyes.  
+for the work: the event. The  
+manager--not the clock--turns the lights,  
+the respect, the event: on. The worker  
+does not clockin until the boss sees  
+the whites of the worker's eyes.  
 &nbsp;  
 Nick bestows upon himself a  
 personal responsibility to find  
