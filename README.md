@@ -974,10 +974,10 @@ eyes transforming green... his pot of gold.
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Action: Part 2 of 2</ins>  
 
-Walden is a book that put my two  
-feet on the move away from my two  
-hands cursing my two eyes with:  
-life's words.  
+Walden is a book from the 1800s  
+that put my two feet on the move  
+away from my two hands cursing my  
+two eyes with: life's words.  
 &nbsp;  
 Escaperoom: think not: do walk:  
 outside of the box, the room, the  
