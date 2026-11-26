@@ -2257,11 +2257,10 @@ student.
 He walks past the dugout understage  
 up against Yale's Holocaust Exhibit.  
 The Exhibit guts out the perimeter  
-floorspace for the first floor to  
-have an outdoors stonepatio space  
-with a ceiling. The warm windows  
-house forbidden books which form a  
-tower Library:  
+of the first floor to have an outdoors  
+stonepatio space with a ceiling. The  
+warm windows house forbidden books  
+which form a tower Library:  
 &nbsp;&nbsp;&nbsp;  a small block: an intersection  
 &nbsp;&nbsp;&nbsp;  across a few lanes in a Library:  
 &nbsp;&nbsp;&nbsp;  with many floors booking more  
