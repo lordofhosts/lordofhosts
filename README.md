@@ -91,10 +91,12 @@ fails to measure, cars drive by
 somehow survives.  
 &nbsp;  
 The entire Northeast from Boston to  
-Baltimore, the places, all play a part  
-in Nick's struggle to live&#8212;with his  
-pride that demands to feel to be the  
-presence of a statue: to count.  
+Baltimore all play a part in Nick's  
+struggle to live&#8212;with his pride  
+that demands to feel to be the  
+presence of a statue: to count. His  
+walking crosses over more than thirty  
+county lines.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Settlement: Part 4 of 5</ins>  
 
