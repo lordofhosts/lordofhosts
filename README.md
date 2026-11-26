@@ -152,21 +152,21 @@ destiny until the terms are met:
 <pre><code>
 ..                                                    .. 
 ..                                                    .. 
-                           Bus Stop->East&#8212;->New Haven 
+                           Bus Stop->East--->New Haven 
                            ^ 
                            |
-                 Dunkins<&#8212;Library->Church 
+                 Dunkins<--Library->Church 
                            ^
                  Hospital  | 
                  ^         | 
                  |         | 
-  New York City<-One<&#8212;&#8212;&#8212;| 
+  New York City<-One<------| 
                            v 
-                 Tree<&#8212;&#8212;-West     
+                 Tree<-----West     
                            ^        River 
                            |        ^ 
                            v        | 
-                 Park<&#8212;&#8212;-Main&#8212;&#8212;>Washington 
+                 Park<-----Main---->Washington 
                            ^ 
                            | 
                            Hood 
@@ -2070,15 +2070,15 @@ can't you hear the silence:
              Grand   Boston 
              |       ^ 
              |       | 
-             |&#8212;&#8212;&#8212;>Union Station 
+             |------>Union Station 
              | 
-  Witchshop<-|&#8212;&#8212;&#8212;>Church 
+  Witchshop<-|------>Church 
              v 
-  Library<&#8212;-Green&#8212;&#8212;&#8212;&#8212;&#8212;->College->One->Norwalk 
+  Library<---Green----------->College->One->Norwalk 
              ^                ^ 
-  Yale<&#8212;&#8212;&#8212;|                | 
+  Yale<------|                | 
              v                v 
-             York&#8212;->Theatre->Books 
+             York--->Theatre->Books 
              ^                ^ 
              |                | 
              Center           Hood 
@@ -2101,20 +2101,20 @@ can't you hear the silence:
 <pre><code>
 ..                                                    .. 
 ..                                                    .. 
-  Forest Hills<->Orange&#8212;&#8212;->North Station->Haverhill 
+  Forest Hills<->Orange----->North Station->Haverhill 
                  ^ 
                  | 
                  v 
-  Washington<&#8212;&#8212;Boston Medical Center 
+  Washington<----Boston Medical Center 
                  ^ 
                  | 
-  Hope House<&#8212;&#8212;Mass & Cass 
+  Hope House<----Mass & Cass 
                  ^ 
                  | 
-  Weedshop<&#8212;&#8212;&#8212;South Bay 
+  Weedshop<------South Bay 
                  ^ 
                  | 
-                 Andrew&#8212;&#8212;->South Station 
+                 Andrew----->South Station 
                  |           | 
                  v           v 
                  Beach       New Haven 
@@ -2145,15 +2145,15 @@ can't you hear the silence:
                  ^ 
                  | 
                  v
-                 Aves<&#8212;&#8212;&#8212;&#8212;>Webster<&#8212;&#8212;>Castle 
+                 Aves<-------->Webster<---->Castle 
                  ^             ^ 
                  |             | 
                  v             v 
-  Crystal Lake<->Hood<&#8212;&#8212;&#8212;&#8212;>Library 
+  Crystal Lake<->Hood<-------->Library 
                  ^             ^ 
                  |             | 
                  v             v 
-  Westgate<&#8212;&#8212;->Train<&#8212;&#8212;&#8212;->Washington<->Riverside 
+  Westgate<----->Train<------->Washington<->Riverside 
                  |             ^ 
                  |             | 
                  v             v 
