@@ -966,7 +966,7 @@ The last lucky money was from my
 Irishman Dad: $9000 life insurance  
 check: deadman's pay for: his Irish  
 goodbye on: baby: owld Nick: blue eyes  
-transforming green... a pot of gold.  
+transforming green... his pot of gold.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Action: Part 2 of 2</ins>  
 
