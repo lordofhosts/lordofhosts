@@ -17,7 +17,7 @@ the whites of the worker's eyes.
 &nbsp;  
 Nick bestows upon himself a  
 personal responsibility to find  
-worklife respectable as his audit  
+worklife respectable as his audit,  
 before giving it his respect.  
 &nbsp;  
 He retreats with his two hands into  
