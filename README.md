@@ -1725,7 +1725,7 @@ far.
 &nbsp;  
 Like all my books previously, physical  
 and digital, I abandon them from my  
-eyesight some day. But I pull from my  
+possession some day. But I pull from my  
 mind what I may recall. I pull from  
 the environment: triggers: to pull from  
 my mind what I may recall.  
