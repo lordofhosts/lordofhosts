@@ -931,7 +931,7 @@ with my settlement.
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Downtown: Part 2 of 4</ins>  
 
-I kill time in the Park after foraging  
+I smoke time in the Park after foraging  
 West, Main, and Washington.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Kitchen: Part 3 of 4</ins>  
