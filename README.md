@@ -72,7 +72,7 @@ kept disrespecting him when his honors
 from the place was shared. One elbow  
 to the hound's head earned the police  
 and courtroom pictures which he still  
-has yet to see&#8212;that go beyond one  
+has yet to see&#8212;that look beyond one  
 forbidden strike.  
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <ins>Walk: Part 3 of 5</ins>  
