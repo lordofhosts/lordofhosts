@@ -839,7 +839,7 @@ the order of operations to perform a
 bull offering that is accepted by  
 the Lord.  
 &nbsp;  
-This can be done with a discrete  
+This can be adjusted with a discrete  
 order of events. Each time the event  
 series is written out, a simulation  
 performs as a thought experiment.  
