@@ -1074,6 +1074,14 @@ my glowtime. My slow, simple, and
 steadfast pledges need to earn me  
 the Lord's ward: my Moonroom.  
 &nbsp;  
+I walkback Washington, and turn left  
+into the Hood. When I get to the  
+foooodbank in the Hood, not only do I  
+get a fdbag bigger than the one  
+from the Center, the lady tells me  
+that they have coats too! I end up  
+with a black furcoat jacket!  
+&nbsp;  
 I head back to the Tree. Early  
 nights maximize: warmtime, asleep.  
 
